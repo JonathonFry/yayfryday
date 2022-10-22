@@ -1,0 +1,13 @@
+baseURL = "http://yayfrydayy.com/"
+disablePathToLower = true
+languageCode = "en-gb"
+title = "YayFryDay"
+theme = "stack"
+
+[permalinks]
+    posts = '/:title/'
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true

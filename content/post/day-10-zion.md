@@ -1,0 +1,29 @@
++++
+author = "Sarah Fry"
+categories = ["travel", "Road Trip USA"]
+date = 2011-07-04T12:01:58Z
+description = ""
+draft = false
+slug = "day-10-zion"
+tags = ["travel", "Road Trip USA"]
+title = "Day 10 - Zion"
+
++++
+
+
+Happy July 4th!! We were up quite early this morning and realised that since we were in Utah it was Mountain Time so an hour ahead. A much better sleep here as it was a lot cooler than the Grand Canyon. We packed up the tent and drove over to the general store, where we had showers and washed our clothes. Then off we went for a much shorter drive to Zion. We passed through lots of towns, which were full of US flags and lots of people hanging out in their front gardens. We drove on the Zion-Mt. Carmel Highway which was fantastic! The road was really busy due to it being July 4th and so the parking for the Overlook Trail was full so unfortunately couldn't do that. We drove through the 1.1mile tunnel which was cool, before heading down in to the canyon and in to Zion NP.
+<table style="width:auto;"><tr><td><a href="https://picasaweb.google.com/lh/photo/AolfhMYn3_fbTQSoLxSyBA?feat=embedwebsite"><img src="https://lh4.googleusercontent.com/-GfKFrRycnKg/ThSO6teRV8I/AAAAAAAAADE/D6bWW4HDx00/s400/IMGP0790.JPG" height="300" width="400" /></a></td></tr><tr><td style="font-family:arial,sans-serif; font-size:11px; text-align:right">From <a href="https://picasaweb.google.com/jonfry22/RoadTripUSA?authuser=0&feat=embedwebsite">Road Trip USA</a></td></tr></table>
+We decided to go straight to Watchman Campground to check-in, but we were told that our site still wasn't empty so had to wait till 12 (about 15mins). So we went in to the town of Springdale, and popped in to a supermarket where we bought bread, cooked sausage, pringles and gatorade. We then went to the campground and put up our tent. We were on site 33, but wished we were on 31 as this had a huge rock and had a lot more shade. The floor was made of gravel, and so when we tried to peg our tent down we were just hitting rock so had to leave it unpegged. After putting the tent up we heard rustling in the bushes and out came a deer! There were loads of ants climbing up our legs so decided to leave and get the shuttle bus in to the canyon as it's closed to cars during the summer.
+
+The shuttle ride was boiling hot, no air con and crowded... It felt like driving through Jurassic Park the scenery was amazing. There was an audio commentary on the bus, which stated that the sandstone cliffs here were the highest in the world. We got off at the last stop - the Temple of Sinawava. This was where the trailhead for the River Walk began, an easy 2.2mile walk along the Virgin River.
+<table style="width:auto;"><tr><td><a href="https://picasaweb.google.com/lh/photo/9YluI-dnQ7TGnohwxnmARg?feat=embedwebsite"><img src="https://lh6.googleusercontent.com/-4ElhvvfAktM/ThSPBNnJ7TI/AAAAAAAAADg/PUX4lPnQIx8/s400/IMGP0809.JPG" height="400" width="300" /></a></td></tr><tr><td style="font-family:arial,sans-serif; font-size:11px; text-align:right">From <a href="https://picasaweb.google.com/jonfry22/RoadTripUSA?authuser=0&feat=embedwebsite">Road Trip USA</a></td></tr></table>
+At the end of the hike the trail for the Narrows begins. We would have loved to do this one, but didn't have the right clothes/shoes. It's a hike through the river, and some points you'd have to swim through. It was very busy here so we quickly got our feet in to the water before walking barefoot to a quieter spot on the way back. There were loads of lizards along the way, and lots of squirrels running along the sand.
+
+We then got the shuttle to Weeping Rock, and walked the 0.4mile trail. We were really hot, the air was so humid. Once we got to the top we were so glad we did this trail. Water was falling off the rock above us and we stood underneath and got soaked - so refreshing!
+<table style="width:auto;"><tr><td><a href="https://picasaweb.google.com/lh/photo/TiIwGeTYS6wsqAD0N6FX-w?feat=embedwebsite"><img src="https://lh3.googleusercontent.com/-Q5DMfhgTHn0/ThSPEtv0eRI/AAAAAAAAAD0/APkVHJELYm0/s400/IMGP0825.JPG" height="300" width="400" /></a></td></tr><tr><td style="font-family:arial,sans-serif; font-size:11px; text-align:right">From <a href="https://picasaweb.google.com/jonfry22/RoadTripUSA?authuser=0&feat=embedwebsite">Road Trip USA</a></td></tr></table>
+We caught the bus again and got off at Zion Lodge and walked the Lower Emerald Pool Trail (1.2miles) to more waterfalls which were lovely. We were really tired after this, so went back to our tent where we discovered it was half 5 and 100 degrees. No wonder we were feeling so dead! It felt so hot at our site so we decided to get in the car and drive to Springdale. We were feeling a bit hungry so went for food at Wildcat Willies Ranch Grill &amp; Saloon. We both had the Buffalo Meatloaf which was SO good, and the staff here were really nice. We wanted to stay in the cool, but decided to head back as it was getting dark.
+
+We played a few card games, before heading in to our baking tent.. We heard a few fireworks, but sadly no fireworks/fires/charcoal were allowed in the park, they told us it was because of the risk of fire spreading. We managed to fall asleep with the tent open, but was woken up during the night by really loud thunder. It got worse and I had read yesterday to follow the 30/30 rule - if you can't count to 30 between lightning and thunder then seek shelter. Well, after the first bit of thunder that woke us up we saw lightning and only managed to count to 1 before thunder. People were getting in there cars so we made a dash for ours too. Quite embarrasing when after it passed our car alarm went off whilst we were in the car! We decided to get back in to our tent when everyone else did, and managed to get back to sleep. Tomorrow we are off to VEGAS!!!
+
+S.
+
