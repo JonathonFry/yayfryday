@@ -11,7 +11,7 @@ title = "Baking Bread - Cheese and Chive Bread"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/10/bread4.jpg"><img class="aligncenter size-full wp-image-1320" title="bread4" src="http://sweetaspi.co.uk/content/images/2012/10/bread4.jpg" alt="" width="490" height="1004" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/10/bread4.jpg"><img class="aligncenter size-full wp-image-1320" title="bread4" src="http://sweetaspi.co.uk/images/2012/10/bread4.jpg" alt="" width="490" height="1004" /></a>
 
 Bread 4/15: Dorie Greenspan's <a href="http://projects.washingtonpost.com/recipes/2010/10/21/savory-cheese-and-chive-bread/" target="_blank">Savory Cheese and Chive Bread</a>
 

@@ -13,7 +13,7 @@ title = "Taste of Edinburgh Cancelled..."
 
 So today has been quite random. We woke up expecting to be going to the <a href="http://www.tasteofedinburgh.co.uk/" target="_blank">Taste of Edinburgh</a> festival this evening and we were both really looking forward to it. With top restaurants in Edinburgh (incl The Balmoral, Tigerlily and Cucina) and top chefs (incl Fabulous Baking Brothers, Lloyd Grossman, Jason Atherton), it looked to be a great evening out trying out different meals and watching demonstrations.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/07/tasteofedin.jpg"><img class="aligncenter size-full wp-image-996" title="tasteofedin" src="http://sweetaspi.co.uk/content/images/2012/07/tasteofedin.jpg" alt="" width="485" height="153" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/07/tasteofedin.jpg"><img class="aligncenter size-full wp-image-996" title="tasteofedin" src="http://sweetaspi.co.uk/images/2012/07/tasteofedin.jpg" alt="" width="485" height="153" /></a>
 
 Unfortunately we woke up to heavy rain. Overnight the meadows were flooded and we had a text from taste telling us it was cancelled. Wahh.
 
@@ -27,7 +27,7 @@ We were quite confused with where we were meant to go with people jammed everywh
 
 After ending up outside at a seating area me and Nat decided to try again inside. This time we were a lot more strategic and managed to get desserts of Eton Mess and 2 mains -  11 hour slow roasted pork belly served with puffed crackling, pomme puree and toffee apple jus and a delicious leg of lamb dish. Delicious!!
 
-<img class="aligncenter size-full wp-image-1012" title="toe" src="http://sweetaspi.co.uk/content/images/2012/07/toe.jpg" alt="" width="490" height="1049" />
+<img class="aligncenter size-full wp-image-1012" title="toe" src="http://sweetaspi.co.uk/images/2012/07/toe.jpg" alt="" width="490" height="1049" />
 
 It was funny to watch people getting food, we felt a bit like seagulls when it came around. One guy had like 10 plates of scallops all to himself (not in one go mind)! There was so much food - I think I had 4 desserts, 2 mains and a starter. The dessert was definitely my favourite, think Jon liked the pomme puree (or mash to us lot) and pork the best.
 

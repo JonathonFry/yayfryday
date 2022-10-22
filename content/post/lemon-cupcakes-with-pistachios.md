@@ -20,8 +20,8 @@ After our wedding we've been eating sugar (lots of wedding cake and champagne st
 
 Today I baked lemon cupcakes with pistachios as a weekend treat from Get The Glow. They contain honey as a sugar substitute and I chose to use coconut oil as the fat. I followed the recipe but they came out a little dark on top so I think for my oven the temperature could be lowered. The cupcakes are delicious with the zing from the lemon and the crunchy pistachios, and super easy to bake.
 
-![](/content/images/2016/04/IMG_0202.JPG)
-![](/content/images/2016/04/IMG_7576.jpg)
+![](/images/2016/04/IMG_0202.JPG)
+![](/images/2016/04/IMG_7576.jpg)
 
 
 > Lemon cupcakes with pistachios from Madeleine Shaw's [Get The Glow](http://www.amazon.co.uk/Get-Glow-Delicious-Recipes-Nourish/dp/140915744X/) (makes 8):
@@ -41,7 +41,7 @@ Today I baked lemon cupcakes with pistachios as a weekend treat from Get The Glo
 
 > Bake for 18 minutes.
 
-![](/content/images/2016/04/IMG_7589.jpg)
+![](/images/2016/04/IMG_7589.jpg)
 
 Hope you've had a great weekend!
 

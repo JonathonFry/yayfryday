@@ -11,7 +11,7 @@ title = "Cupcakes 3-ways: Chocolate/Vanilla/Nutella"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/trio-cupcakes.jpg"><img class="aligncenter size-full wp-image-830" title="trio cupcakes" src="http://sweetaspi.co.uk/content/images/2012/06/trio-cupcakes.jpg" alt="" width="490" height="508" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/trio-cupcakes.jpg"><img class="aligncenter size-full wp-image-830" title="trio cupcakes" src="http://sweetaspi.co.uk/images/2012/06/trio-cupcakes.jpg" alt="" width="490" height="508" /></a>
 
 Yesterday I decided to bake cupcakes. I had some time before going to my friend Claire's flat so I quickly put them together. I went for 3 different flavours all with vanilla sponge - plain frosting, chocolate frosting, and a swirl of nutella.
 
@@ -36,7 +36,7 @@ For the buttercream frostings, I put around 100g softened butter in a bowl and a
 
 Delicious! I think I'll try doing 3 different types each time I bake them so I can try out lots of new flavours.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/cutcupcake.jpg"><img class="aligncenter size-full wp-image-831" title="cutcupcake" src="http://sweetaspi.co.uk/content/images/2012/06/cutcupcake.jpg" alt="" width="490" height="367" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/cutcupcake.jpg"><img class="aligncenter size-full wp-image-831" title="cutcupcake" src="http://sweetaspi.co.uk/images/2012/06/cutcupcake.jpg" alt="" width="490" height="367" /></a>
 
 S. xo
 

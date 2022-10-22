@@ -13,7 +13,7 @@ title = "Chocolate Soufflés"
 
 Over the weekend I wanted to do some baking with ingredients I still had in my cupboard. And here's what I ended up with...
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/souffle.jpg"><img class="aligncenter size-full wp-image-906" title="souffle" src="http://sweetaspi.co.uk/content/images/2012/06/souffle.jpg" alt="" width="490" height="734" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/souffle.jpg"><img class="aligncenter size-full wp-image-906" title="souffle" src="http://sweetaspi.co.uk/images/2012/06/souffle.jpg" alt="" width="490" height="734" /></a>
 
 ...chocolate soufflés!
 

@@ -11,11 +11,11 @@ title = "Peanut Butter Oat Bars"
 +++
 
 
-![Peanut Butter Oat Bars](/content/images/2014/Feb/PB_oat_bars.JPG)
+![Peanut Butter Oat Bars](/images/2014/Feb/PB_oat_bars.JPG)
 
 These shall be coming to work with me this week. They will keep me away from the doughnuts that keep magically appearing on my desk.
 
-![Peanut Butter Oat Bar](/content/images/2014/Feb/PB_oat_bars_2.JPG)
+![Peanut Butter Oat Bar](/images/2014/Feb/PB_oat_bars_2.JPG)
 
 I followed this [Healthy Peanut Butter Chunk Oatmeal Bars](http://sallysbakingaddiction.com/2012/10/11/healthy-peanut-butter-chunk-oatmeal-bars/) recipe and added in some chopped up almonds and dark chocolate.
 

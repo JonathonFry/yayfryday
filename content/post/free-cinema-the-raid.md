@@ -11,7 +11,7 @@ title = "Free Cinema - The Raid"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/04/The-Raid.jpg"><img class="aligncenter size-full wp-image-617" title="The Raid" src="http://sweetaspi.co.uk/content/images/2012/04/The-Raid.jpg" alt="" width="490" height="220" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/04/The-Raid.jpg"><img class="aligncenter size-full wp-image-617" title="The Raid" src="http://sweetaspi.co.uk/images/2012/04/The-Raid.jpg" alt="" width="490" height="220" /></a>
 
 Free tickets to see a screening of the action movie <a href="http://www.imdb.com/title/tt1899353/" target="_blank">The Raid</a> have been released. It's in Indonesian so there will be subtitles and it's an 18. See the link below for free tickets:
 <ul>

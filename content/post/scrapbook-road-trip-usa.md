@@ -15,7 +15,7 @@ title = "Scrapbook: Road Trip USA"
 
 It's been over a year since Jon and I <a href="http://sweetaspi.co.uk/2011/07/23/road-trip-usa/" target="_blank">went to the US</a>, and now the scrapbook is done! Here is the complete final book (minus all of the printed out blog pages, oh and I want a date stamp to stamp on dates so you may notice some teeny gaps).
 
-<a href="http://sweetaspi.co.uk/content/images/2012/09/completescrapbook.jpg"><img class="aligncenter size-full wp-image-1281" title="completescrapbook" alt="" src="http://sweetaspi.co.uk/content/images/2012/09/completescrapbook.jpg" width="490" height="8929" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/09/completescrapbook.jpg"><img class="aligncenter size-full wp-image-1281" title="completescrapbook" alt="" src="http://sweetaspi.co.uk/images/2012/09/completescrapbook.jpg" width="490" height="8929" /></a>
 <p style="text-align: center;"><em>Click on the image above and it'll become somewhat clearer </em></p>
 I'll post my thoughts on this project soon, as well as supplies used, so look out for that within the next day or two.
 

@@ -11,10 +11,10 @@ title = "Free Beauty Samples Roundup"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/05/IMGP2971.jpg"><img class="aligncenter size-full wp-image-769" title="samples" src="http://sweetaspi.co.uk/content/images/2012/05/IMGP2971.jpg" alt="" width="490" height="266" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/05/IMGP2971.jpg"><img class="aligncenter size-full wp-image-769" title="samples" src="http://sweetaspi.co.uk/images/2012/05/IMGP2971.jpg" alt="" width="490" height="266" /></a>
 
 As shown in the photo above I do go a bit crazy for free stuff from time to time. If I see a good sample I want to try then I will end up searching for more and get as many as I can in one big go. So recently I've been going sample hunting and trying to find some good ones. Here are my latest goodies:
-<p style="text-align: center;"><a href="http://sweetaspi.co.uk/content/images/2012/05/IMGP2969.jpg"><img class="aligncenter size-full wp-image-771" title="latest samples" src="http://sweetaspi.co.uk/content/images/2012/05/IMGP2969.jpg" alt="" width="490" height="344" /></a><em>Diesel Only The Brave Tattoo//L'Oreal Men Expert Hydra Energetic//Herbal Essences Hello Hydration//Garnier BB Cream//L'Oreal Youth Code Luminize</em></p>
+<p style="text-align: center;"><a href="http://sweetaspi.co.uk/images/2012/05/IMGP2969.jpg"><img class="aligncenter size-full wp-image-771" title="latest samples" src="http://sweetaspi.co.uk/images/2012/05/IMGP2969.jpg" alt="" width="490" height="344" /></a><em>Diesel Only The Brave Tattoo//L'Oreal Men Expert Hydra Energetic//Herbal Essences Hello Hydration//Garnier BB Cream//L'Oreal Youth Code Luminize</em></p>
 <p style="text-align: left;">So far I've only tried the <a href="https://secure.garnier.co.uk/_en/_gb/BB-cream/" target="_blank">Garnier BB Cream</a> and I think it's awesome. It's good having so much in one cream, incl SPF 15 so I was sorted with that for the sunny days. Jon is using the <a href="http://www.loreal-paris.co.uk/skincare/hydra-energetic/daily-moisturising-lotion.aspx" target="_blank">L'Oreal Hydra Energetic Moisturiser </a>and really likes it, and it smells good too.</p>
 Here are some samples I've collected together that are currently available to grab:
 <ul>

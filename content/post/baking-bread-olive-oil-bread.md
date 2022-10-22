@@ -11,7 +11,7 @@ title = "Baking Bread - Olive Oil Bread"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/09/olive-oil-bread.jpg"><img class="aligncenter size-full wp-image-1272" title="olive oil bread" src="http://sweetaspi.co.uk/content/images/2012/09/olive-oil-bread.jpg" alt="" width="490" height="685" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/09/olive-oil-bread.jpg"><img class="aligncenter size-full wp-image-1272" title="olive oil bread" src="http://sweetaspi.co.uk/images/2012/09/olive-oil-bread.jpg" alt="" width="490" height="685" /></a>
 
 Bread 3/15 : olive oil bread from <a href="http://www.bbcgoodfood.com/recipes/1162642/" target="_blank">BBC GoodFood</a>
 

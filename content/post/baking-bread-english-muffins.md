@@ -11,8 +11,8 @@ title = "Baking Bread - English Muffins"
 +++
 
 
-![english muffins](/content/images/2014/Oct/DSC_0377-copy.jpg)
-![english muffins1](/content/images/2014/Oct/DSC_0374-copy.jpg)
+![english muffins](/images/2014/Oct/DSC_0377-copy.jpg)
+![english muffins1](/images/2014/Oct/DSC_0374-copy.jpg)
 
 Bread 14/15: [English Muffins](http://www.bbc.co.uk/food/recipes/english_muffins_56640)
 

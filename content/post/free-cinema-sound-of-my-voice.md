@@ -11,7 +11,7 @@ title = "Free Cinema: Sound of My Voice"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/Sound-of-My-Voice.jpg"><img class="aligncenter size-full wp-image-901" title="Sound-of-My-Voice" src="http://sweetaspi.co.uk/content/images/2012/06/Sound-of-My-Voice.jpg" alt="" width="490" height="326" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/Sound-of-My-Voice.jpg"><img class="aligncenter size-full wp-image-901" title="Sound-of-My-Voice" src="http://sweetaspi.co.uk/images/2012/06/Sound-of-My-Voice.jpg" alt="" width="490" height="326" /></a>
 
 Some tickets for free screenings of the movie <a href="http://www.imdb.com/title/tt1748207/" target="_blank">Sound of My Voice</a> have been released across the UK. Here's the links so get them whilst you can!
 <ul>

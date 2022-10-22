@@ -13,7 +13,7 @@ title = "Scrapbook Peek #5"
 
 I'm really enjoying this project. Even more so now I have a mini stapler. <a href="http://www.amazon.co.uk/Rexel-BAMBI-STPLR-1-5M-STPL/dp/B000SHSK9S/ref=sr_1_1?ie=UTF8&amp;qid=1340039737&amp;sr=8-1" target="_blank">This Bambi one</a> to be precise. It's funny how excited I get about little things like finally owning a stapler - thanks Jon for encouraging me to get it haha. It's so cute though! But anyway, here's my scrapbook peek.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/scrapsanfran.jpg"><img class="aligncenter size-full wp-image-878" title="scrapsanfran" src="http://sweetaspi.co.uk/content/images/2012/06/scrapsanfran.jpg" alt="" width="490" height="1063" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/scrapsanfran.jpg"><img class="aligncenter size-full wp-image-878" title="scrapsanfran" src="http://sweetaspi.co.uk/images/2012/06/scrapsanfran.jpg" alt="" width="490" height="1063" /></a>
 
 I'm finally getting the hang of making my pockets to hold stuff sturdily, again by cutting a page in half. I even painted this one <em>and</em> cut a rectangle out to show the Alcatraz logo-image-thingy and stuck some acetate film in its place, fancy ;)
 

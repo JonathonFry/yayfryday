@@ -16,21 +16,21 @@ Spring has definitely come to Edinburgh. On Friday I heard that the cherry bloss
 
 We walked to the Meadows via Bruntsfield, with a scrummy stop off at [Cafe Grande](http://www.cafegrande.co.uk/) for a late breakfast. I had a bacon breakfast roll and Jon went for poached eggs on toast, gobbled down with a cup of tea and a cappuccino.
 
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01172.jpg)
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01137.jpg)
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01101.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01172.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01137.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01101.jpg)
 
 So many pink trees. 
 
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01147.jpg)
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01167.jpg)
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01155.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01147.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01167.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01155.jpg)
 
 And some more.
 
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01157.jpg)
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01098.jpg)
-![Cherry Blossom Meadows Edinburgh](/content/images/2017/04/DSC01090.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01157.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01098.jpg)
+![Cherry Blossom Meadows Edinburgh](/images/2017/04/DSC01090.jpg)
 
 I recommend a trip to the Meadows for plenty of cherry blossom photo opportunities. Just get there early if it's a sunny day - before the barbecuers descend (or you could join them).
 

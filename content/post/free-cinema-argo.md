@@ -11,7 +11,7 @@ title = "Free Cinema - Argo"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/10/argo.jpg"><img class="aligncenter size-full wp-image-1338" title="argo" src="http://sweetaspi.co.uk/content/images/2012/10/argo.jpg" alt="" width="490" height="344" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/10/argo.jpg"><img class="aligncenter size-full wp-image-1338" title="argo" src="http://sweetaspi.co.uk/images/2012/10/argo.jpg" alt="" width="490" height="344" /></a>
 
 Free tickets for screenings of the film <a href="http://www.imdb.com/title/tt1024648/" target="_blank">Argo</a> have been released. Heard lots of good things about this movie so if there's tickets available get them before they're gone!
 <ul>

@@ -11,7 +11,7 @@ title = "Chocolate Birthday Cake with Nutella Cloud Frosting"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2013/02/bdaycake.jpg"><img class="alignnone size-full wp-image-1481" alt="bdaycake" src="http://sweetaspi.co.uk/content/images/2013/02/bdaycake.jpg" width="490" height="742" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/02/bdaycake.jpg"><img class="alignnone size-full wp-image-1481" alt="bdaycake" src="http://sweetaspi.co.uk/images/2013/02/bdaycake.jpg" width="490" height="742" /></a>
 
 On Sunday I baked myself a birthday cake. I was really in the mood to bake something and it was my birthday the next day so I thought why not! It's oh so chocolatey and delicious, just the way I like :)
 

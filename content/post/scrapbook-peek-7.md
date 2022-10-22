@@ -15,13 +15,13 @@ So it's been a while since I shared a peek at my scrapbook. Things slowed down r
 
 Today I finished up 3 pages, all of our journey along the Pacific Coast. I cut one of the pages into a semi-circle so all these pages 'fit in' together.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/07/scrappeek7.jpg"><img class="aligncenter size-full wp-image-1072" title="scrappeek7" src="http://sweetaspi.co.uk/content/images/2012/07/scrappeek7.jpg" alt="" width="490" height="778" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/07/scrappeek7.jpg"><img class="aligncenter size-full wp-image-1072" title="scrappeek7" src="http://sweetaspi.co.uk/images/2012/07/scrappeek7.jpg" alt="" width="490" height="778" /></a>
 
 I can't wait to finish it and start journalling and sharing it with you!
 
 Today it was (partially) sunny outside and whilst scrapbooking I watched the birds, ate some flapjack that I made last night and drank cups of tea. I love this project!
 
-<a href="http://sweetaspi.co.uk/content/images/2012/07/here.jpg"><img class="aligncenter size-full wp-image-1073" title="here" src="http://sweetaspi.co.uk/content/images/2012/07/here.jpg" alt="" width="490" height="297" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/07/here.jpg"><img class="aligncenter size-full wp-image-1073" title="here" src="http://sweetaspi.co.uk/images/2012/07/here.jpg" alt="" width="490" height="297" /></a>
 
 S. xo
 

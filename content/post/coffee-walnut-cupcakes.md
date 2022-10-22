@@ -16,13 +16,13 @@ I'm not a huge fan of drinking coffee. I'll drink it occasionally if we have som
 
 I had a craving for that coffee icing and so after I rummaged through the cupboards I decided to get baking. A quick google search landed me with Nigella's [Coffee and Walnut Layer Cake](https://www.nigella.com/recipes/coffee-and-walnut-layer-cake) recipe that I used as a base. I made some amendments to Nigella's recipe based on the ingredients I had (eg replaced butter with coconut oil) and also chose to make cupcakes, simply because I find them easier to make and to eat (plus they are faster to bake ;)).
 
-![Coffee Walnut Cupcakes](/content/images/2016/09/DSC03860.jpg)
+![Coffee Walnut Cupcakes](/images/2016/09/DSC03860.jpg)
 
 The sponge was delicious and the icing was just what I was looking for - great flavours with a good amount of coffee. I froze half of them and took some out of the freezer to defrost a few weeks later and they were just as good, the nuts still crunchy and the sponge still moist.
 
-![Coffee Walnut Cupcakes](/content/images/2016/09/DSC03851.jpg)
-![Coffee Walnut Cupcakes](/content/images/2016/09/DSC03865.jpg)
-![Coffee Walnut Cupcakes](/content/images/2016/09/DSC03870.jpg)
+![Coffee Walnut Cupcakes](/images/2016/09/DSC03851.jpg)
+![Coffee Walnut Cupcakes](/images/2016/09/DSC03865.jpg)
+![Coffee Walnut Cupcakes](/images/2016/09/DSC03870.jpg)
 
 > **Coffee and Walnut Cupcakes (makes 18):**
 >
@@ -57,7 +57,7 @@ Method:
 8. Dissolve the instant expresso powder in the boiling water and add it to the processor and blend.
 9. Spread the icing on top of the cupcakes and top with the walnut pieces.
 
-![Coffee Walnut Cupcakes](/content/images/2016/09/DSC03857.jpg)
+![Coffee Walnut Cupcakes](/images/2016/09/DSC03857.jpg)
 
 Hope you're having a great weekend!
 

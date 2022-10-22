@@ -11,7 +11,7 @@ title = "Free Cinema - Safe"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/04/safe.jpg"><img class="aligncenter size-full wp-image-546" title="safe" src="http://sweetaspi.co.uk/content/images/2012/04/safe.jpg" alt="" width="450" height="338" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/04/safe.jpg"><img class="aligncenter size-full wp-image-546" title="safe" src="http://sweetaspi.co.uk/images/2012/04/safe.jpg" alt="" width="450" height="338" /></a>
 
 A couple of codes have been released for screenings of <a href="http://www.imdb.com/title/tt1656190/" target="_blank">Safe</a> starring Jason Statham. As usual, see below for the links ;)
 <ul>

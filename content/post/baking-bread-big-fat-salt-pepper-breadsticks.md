@@ -11,7 +11,7 @@ title = "Baking Bread - Big Fat Salt & Pepper Breadsticks"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2013/01/breadsticks.jpg"><img class="alignnone size-full wp-image-1461" alt="breadsticks" src="http://sweetaspi.co.uk/content/images/2013/01/breadsticks.jpg" width="490" height="688" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/01/breadsticks.jpg"><img class="alignnone size-full wp-image-1461" alt="breadsticks" src="http://sweetaspi.co.uk/images/2013/01/breadsticks.jpg" width="490" height="688" /></a>
 
 Bread 8/15: Big Fat Salt &amp; Pepper Breadsticks from <a href="http://www.amazon.co.uk/Baking-Made-Easy-Lorraine-Pascale/dp/0007275943/ref=sr_1_1?ie=UTF8&amp;qid=1358520787&amp;sr=8-1" target="_blank">Lorraine Pascale’s Baking Made Easy</a><a href="http://www.bbc.co.uk/food/recipes/eight-strand_plaited_57815" target="_blank">
 </a>

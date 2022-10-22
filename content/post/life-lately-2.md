@@ -26,7 +26,7 @@ We parked up and it seemed like we weren't in the city anymore. We were on <a hr
 
 These photos were taken on my phone so they're pretty bad quality. [Jon's just renewed his phone contract and now has a Samsung Galaxy S2 (woo!) so I can use the camera on that when I don't have my proper camera with me now :D]
 
-<a href="http://sweetaspi.co.uk/content/images/2012/09/blackford-hill.jpg"><img class="aligncenter size-full wp-image-1195" title="blackford hill" src="http://sweetaspi.co.uk/content/images/2012/09/blackford-hill.jpg" alt="" width="490" height="1063" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/09/blackford-hill.jpg"><img class="aligncenter size-full wp-image-1195" title="blackford hill" src="http://sweetaspi.co.uk/images/2012/09/blackford-hill.jpg" alt="" width="490" height="1063" /></a>
 
 I love finding new places like this. This would be an awesome place to come and watch fireworks or for a picnic in the sun. I'm surprised it's not so well known!
 

@@ -11,7 +11,7 @@ title = "Baking Bread - Plaited Loaf"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/11/plait-loaf.jpg"><img class="aligncenter size-full wp-image-1362" title="plait loaf" src="http://sweetaspi.co.uk/content/images/2012/11/plait-loaf.jpg" alt="" width="490" height="1289" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/11/plait-loaf.jpg"><img class="aligncenter size-full wp-image-1362" title="plait loaf" src="http://sweetaspi.co.uk/images/2012/11/plait-loaf.jpg" alt="" width="490" height="1289" /></a>
 
 Bread 6/15: <a href="http://www.bbc.co.uk/food/recipes/eight-strand_plaited_57815" target="_blank">Plaited Loaf</a>
 

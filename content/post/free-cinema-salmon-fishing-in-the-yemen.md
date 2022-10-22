@@ -11,7 +11,7 @@ title = "Free Cinema – Salmon Fishing in the Yemen"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/04/salmon_fishing_in_the_yemen_poster.jpg"><img class="aligncenter size-full wp-image-521" title="salmon_fishing_in_the_yemen_poster" src="http://sweetaspi.co.uk/content/images/2012/04/salmon_fishing_in_the_yemen_poster.jpg" alt="" width="490" height="367" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/04/salmon_fishing_in_the_yemen_poster.jpg"><img class="aligncenter size-full wp-image-521" title="salmon_fishing_in_the_yemen_poster" src="http://sweetaspi.co.uk/images/2012/04/salmon_fishing_in_the_yemen_poster.jpg" alt="" width="490" height="367" /></a>
 
 I’ve recently seen a number of different codes available for <a href="http://www.imdb.com/title/tt1441952/" target="_blank">Salmon Fishing in the Yemen</a> so I thought I’d collectively put them together for those wishing to see it. I’m not able to make any of these screenings and probably won’t be going to the cinema now until after exams – boo :( But here they are, enjoy!
 <ul>

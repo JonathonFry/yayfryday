@@ -11,7 +11,7 @@ title = "On Saturday..."
 +++
 
 
-![Engaged](/content/images/2014/Dec/DSC_0862-copy-2.jpg)
+![Engaged](/images/2014/Dec/DSC_0862-copy-2.jpg)
 
 On our 9 year anniversary Jon asked if I would be with him forever, I said *yes*.
 

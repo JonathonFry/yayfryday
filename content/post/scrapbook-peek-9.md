@@ -15,7 +15,7 @@ A couple of days ago my adhesive runner ran out. I picked up another one from <a
 
 Here's a peek at my last couple pages - Universal Studios and leaving the US.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/07/scrap91.jpg"><img class="aligncenter size-full wp-image-1100" title="scrap9" src="http://sweetaspi.co.uk/content/images/2012/07/scrap91.jpg" alt="" width="490" height="701" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/07/scrap91.jpg"><img class="aligncenter size-full wp-image-1100" title="scrap9" src="http://sweetaspi.co.uk/images/2012/07/scrap91.jpg" alt="" width="490" height="701" /></a>
 
 S. xo
 

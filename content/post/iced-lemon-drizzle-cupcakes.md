@@ -11,15 +11,15 @@ title = "Iced Lemon Drizzle Cupcakes"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2013/07/ldcupcake1.jpg"><img class="alignnone size-full wp-image-1902" alt="ldcupcake1" src="http://sweetaspi.co.uk/content/images/2013/07/ldcupcake1.jpg" width="490" height="363" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/07/ldcupcake1.jpg"><img class="alignnone size-full wp-image-1902" alt="ldcupcake1" src="http://sweetaspi.co.uk/images/2013/07/ldcupcake1.jpg" width="490" height="363" /></a>
 
 Today I baked these yummy iced lemon drizzle cupcakes as I had some lemons that needed using. I had roughly 115g of caster sugar left so I used that amount to judge how much other ingredients to use. I forgot that I'd need some more caster sugar for the drizzle but I used soft brown sugar instead and it tastes just as good.
 
-<a href="http://sweetaspi.co.uk/content/images/2013/07/ldcupcake2.jpg"><img class="alignnone size-full wp-image-1903" alt="ldcupcake2" src="http://sweetaspi.co.uk/content/images/2013/07/ldcupcake2.jpg" width="490" height="323" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/07/ldcupcake2.jpg"><img class="alignnone size-full wp-image-1903" alt="ldcupcake2" src="http://sweetaspi.co.uk/images/2013/07/ldcupcake2.jpg" width="490" height="323" /></a>
 
 I made 9 cupcakes from the mixture, and had a bit of icing leftover. I also threw in a handful of poppy seeds which adds a bit of texture. The sponge is lovely and moist, and the icing makes them that little bit more special.
 
-<a href="http://sweetaspi.co.uk/content/images/2013/07/ldcupcake3.jpg"><img class="alignnone size-full wp-image-1901" alt="ldcupcake3" src="http://sweetaspi.co.uk/content/images/2013/07/ldcupcake3.jpg" width="490" height="367" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/07/ldcupcake3.jpg"><img class="alignnone size-full wp-image-1901" alt="ldcupcake3" src="http://sweetaspi.co.uk/images/2013/07/ldcupcake3.jpg" width="490" height="367" /></a>
 
 For the sponge:
 115g caster sugar

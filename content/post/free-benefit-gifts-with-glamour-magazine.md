@@ -11,7 +11,7 @@ title = "Free Benefit Gifts with Glamour Magazine"
 
 As <a title="Free Beauty Samples Roundup" href="http://sweetaspi.co.uk/free-beauty-samples-roundup/">previously posted</a>, Glamour magazine are currently giving away Benefit products with their magazines. So today after work I was walking back through town and decided to stop off at Boots on Princes St and found loads of them on the shelves. I managed to pick up 2 different ones and then stopped at a corner shop to get the third to complete the collection.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/glamour-benefit.jpg"><img class="aligncenter size-full wp-image-794" title="glamour benefit" src="http://sweetaspi.co.uk/content/images/2012/06/glamour-benefit.jpg" alt="" width="490" height="651" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/glamour-benefit.jpg"><img class="aligncenter size-full wp-image-794" title="glamour benefit" src="http://sweetaspi.co.uk/images/2012/06/glamour-benefit.jpg" alt="" width="490" height="651" /></a>
 
 The magazine itself costs £2 and the free Benefit gifts are:
 <ul>

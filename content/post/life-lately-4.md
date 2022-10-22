@@ -11,7 +11,7 @@ title = "Life Lately"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2013/04/unioncanal.jpg"><img class="alignnone size-full wp-image-1735" alt="union canal" src="http://sweetaspi.co.uk/content/images/2013/04/unioncanal.jpg" width="490" height="294" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/04/unioncanal.jpg"><img class="alignnone size-full wp-image-1735" alt="union canal" src="http://sweetaspi.co.uk/images/2013/04/unioncanal.jpg" width="490" height="294" /></a>
 <ul>
 	<li>Busy studying (1 exam down, 2 to go!)</li>
 	<li>Jon has got himself a graduate job starting in June! (Woo!)</li>

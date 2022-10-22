@@ -16,25 +16,25 @@ Barcelona or Iceland were our two choices for where we would spend our first wed
 
 In High School I did a project in Art class where I chose to focus on architecture. That's where I remember discovering Antoni Gaudí, and his wonderfully distinctive style.  I saw pictures of the colouful Park Guell and many of the buildings scattered around Barcelona, and I was inspired. Fast forward twelve years later and there I am - stood beneath the Sagrada Familia in awe.
 
-![Arc de Triomf Barcelona](/content/images/2017/04/DSC00391-1.jpg)
+![Arc de Triomf Barcelona](/images/2017/04/DSC00391-1.jpg)
 
 Jon & I spent our anniversary wandering the streets of Barcelona, eating ice-cream in the Ciutadella Park, watching surfers at the beach, and going out for a romantic dinner in a Gaudi built restaurant.
 
 Our five day trip went something like this:
 
-![Park Guell Barcelona](/content/images/2017/04/DSC09990.jpg)
-![Barceloneta Barcelona](/content/images/2017/04/DSC00503.jpg)
-![El Born Barcelona](/content/images/2017/04/DSC00348-1.jpg)
-![Arc de Triomf Barcelona](/content/images/2017/04/DSC00415.jpg)
-![Barcelona view](/content/images/2017/04/DSC00746.jpg)
-![Barceloneta Barcelona](/content/images/2017/04/DSC00483.jpg)
-![MNAC Barcelona](/content/images/2017/04/DSC00663.jpg)
-![Park Guell Barcelona](/content/images/2017/04/DSC00098.jpg)
-![Castell de Montjuic Barcelona](/content/images/2017/04/DSC00571.jpg)
-![Sagrada Familia Barcelona](/content/images/2017/04/DSC00263.jpg)
-![Barcelona from Montjuic](/content/images/2017/04/DSC00789.jpg)
-![Snail in Barcelona](/content/images/2017/04/DSC00794.jpg)
-![MNAC at night Barcelona](/content/images/2017/04/DSC00776.jpg)
+![Park Guell Barcelona](/images/2017/04/DSC09990.jpg)
+![Barceloneta Barcelona](/images/2017/04/DSC00503.jpg)
+![El Born Barcelona](/images/2017/04/DSC00348-1.jpg)
+![Arc de Triomf Barcelona](/images/2017/04/DSC00415.jpg)
+![Barcelona view](/images/2017/04/DSC00746.jpg)
+![Barceloneta Barcelona](/images/2017/04/DSC00483.jpg)
+![MNAC Barcelona](/images/2017/04/DSC00663.jpg)
+![Park Guell Barcelona](/images/2017/04/DSC00098.jpg)
+![Castell de Montjuic Barcelona](/images/2017/04/DSC00571.jpg)
+![Sagrada Familia Barcelona](/images/2017/04/DSC00263.jpg)
+![Barcelona from Montjuic](/images/2017/04/DSC00789.jpg)
+![Snail in Barcelona](/images/2017/04/DSC00794.jpg)
+![MNAC at night Barcelona](/images/2017/04/DSC00776.jpg)
 
 And in words, some of things we got up to between siestas and sangrias:
 
@@ -50,7 +50,7 @@ And in words, some of things we got up to between siestas and sangrias:
 
 It was everything I dreamed of and more.
 
-![](/content/images/2017/04/DSC00306.jpg)
+![](/images/2017/04/DSC00306.jpg)
 
 S. xo
 

@@ -19,13 +19,13 @@ Whilst road tripping in the US, we had <a href="http://www.amazon.co.uk/Rand-McN
 
 I've recently been looking up ways to display maps as artwork , and I found <a href="http://www.marthastewart.com/375160/map-artwork" target="_blank">this</a> thanks to Martha Stewart (instructions in the link). This is a perfect way to display a road trip!
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/map-frames.jpg"><img class="aligncenter size-full wp-image-845" title="map-frames" alt="" src="http://sweetaspi.co.uk/content/images/2012/06/map-frames.jpg" width="490" height="306" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/map-frames.jpg"><img class="aligncenter size-full wp-image-845" title="map-frames" alt="" src="http://sweetaspi.co.uk/images/2012/06/map-frames.jpg" width="490" height="306" /></a>
 
 I'm thinking I'll do a large map of the West of the US and sew on our road trip and frame it like above :)
 
 So yesterday I had a little play with a free map I picked up in San Francisco. I hand sewn on the route that we took of a day we spent sightseeing (<a href="http://sweetaspi.co.uk/day-17-san-fran-sights/" target="_blank">this one</a>) and put an X where we began and ended - the San Remo Hotel.
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/sewn-map.jpg"><img class="aligncenter size-full wp-image-846" title="sewn map" alt="" src="http://sweetaspi.co.uk/content/images/2012/06/sewn-map.jpg" width="490" height="551" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/sewn-map.jpg"><img class="aligncenter size-full wp-image-846" title="sewn map" alt="" src="http://sweetaspi.co.uk/images/2012/06/sewn-map.jpg" width="490" height="551" /></a>
 
 Having completed this I'm eager to sew the big road trip next. I stuck this San Francisco map in to my scrapbook and I think it looks pretty good!
 

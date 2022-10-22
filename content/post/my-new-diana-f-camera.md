@@ -13,7 +13,7 @@ title = "My New Diana F+ Camera"
 
 I am now the proud owner of a Diana F+ camera!! With a whole load of accessories included - Yipee!
 
-<a href="http://sweetaspi.co.uk/content/images/2012/05/diana-deluxe-kit.jpg"><img class="aligncenter size-full wp-image-647" title="diana deluxe kit" src="http://sweetaspi.co.uk/content/images/2012/05/diana-deluxe-kit.jpg" alt="" width="490" height="390" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/05/diana-deluxe-kit.jpg"><img class="aligncenter size-full wp-image-647" title="diana deluxe kit" src="http://sweetaspi.co.uk/images/2012/05/diana-deluxe-kit.jpg" alt="" width="490" height="390" /></a>
 
 I've been looking at toy cameras for a while now. I like that they are plastic, light and use film. I particularly love the Diana F+ from Lomography, I love the outcome of the photos and not knowing how they'll come out until the film is developed.
 
@@ -37,7 +37,7 @@ Here's the main features:
 </ul>
 There's also little things like lens covers, drawstring bags for all the lenses, a book, etc thrown in too! Well the box arrived today and woah that's a whole load of stuff!!
 
-<a href="http://sweetaspi.co.uk/content/images/2012/05/diana-f+.jpg"><img class="aligncenter size-full wp-image-651" title="diana f+" src="http://sweetaspi.co.uk/content/images/2012/05/diana-f+.jpg" alt="" width="490" height="698" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/05/diana-f+.jpg"><img class="aligncenter size-full wp-image-651" title="diana f+" src="http://sweetaspi.co.uk/images/2012/05/diana-f+.jpg" alt="" width="490" height="698" /></a>
 
 Unfortunately I don't have any film yet so haven't had a play, but I've got to admire all the parts and work out how everything works. We're gonna try 35mm film first as it's cheaper and more available, then when we've more experience we'll try the 120mm. I'm so excited to get snapping and try out lots of different things, although I'm sure the first roll of film we have developed will be terrible but I'd enjoy it all the same!
 

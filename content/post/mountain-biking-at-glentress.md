@@ -11,8 +11,8 @@ title = "Mountain Biking at Glentress"
 +++
 
 
-![Glentress1](/content/images/2014/Jun/IMG_1139.JPG)
-![Glentress2](/content/images/2014/Jun/IMG_1140.JPG)
+![Glentress1](/images/2014/Jun/IMG_1139.JPG)
+![Glentress2](/images/2014/Jun/IMG_1140.JPG)
 
 A few weeks back Jon and I went mountain biking at [7Stanes Glentress](http://7stanesmountainbiking.com/Glentress---Innerleithen). We went to celebrate his 24th birthday (hooray!) and it was so much fun. I was pretty nervous about going since I hadn't been cycling for a couple years (not since I'd fallen off in Greece) and never been mountain biking before.
 
@@ -20,7 +20,7 @@ Glentress has won many awards and is one of the best biking centres in the UK. I
 
 We both really enjoyed it and although I couldn't walk the next day I would definitely go back!
 
-![Glentress3](/content/images/2014/Jun/IMG_1131.png)
+![Glentress3](/images/2014/Jun/IMG_1131.png)
 
 S. xo
 

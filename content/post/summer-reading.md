@@ -11,7 +11,7 @@ title = "Summer Reading"
 +++
 
 
-![summer reading](/content/images/2014/Aug/IMG_2046-copy.jpg)
+![summer reading](/images/2014/Aug/IMG_2046-copy.jpg)
 
 [The Fault in our Stars](http://www.amazon.co.uk/Fault-Our-Stars-John-Green/dp/0141345659/) by John Green | I read this at the beginning of summer after hearing so much about it. It was a good quick read and it was sad. I wasn't so keen on the movie though.
 

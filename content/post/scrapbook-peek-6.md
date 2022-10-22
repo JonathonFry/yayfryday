@@ -13,7 +13,7 @@ title = "Scrapbook Peek #6"
 
 Still enjoying this project and have become quite addicted to it over the past couple of days...
 
-<a href="http://sweetaspi.co.uk/content/images/2012/06/scrappeek6.jpg"><img class="aligncenter size-full wp-image-894" title="scrappeek6" src="http://sweetaspi.co.uk/content/images/2012/06/scrappeek6.jpg" alt="" width="490" height="1117" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/06/scrappeek6.jpg"><img class="aligncenter size-full wp-image-894" title="scrappeek6" src="http://sweetaspi.co.uk/images/2012/06/scrappeek6.jpg" alt="" width="490" height="1117" /></a>
 
 I've finished San Francisco and I'm now on to the coast. Just Los Angeles to go after that. I've started to go back to the beginning and add some things to my first few pages which were pretty plain as I didn't have many supplies back when I began the scrapbook. It's good to see the progress in how much I've improved since I started!
 

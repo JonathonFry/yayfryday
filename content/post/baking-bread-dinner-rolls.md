@@ -11,7 +11,7 @@ title = "Baking Bread - Dinner Rolls"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2012/10/dinnerrolls.jpg"><img class="aligncenter size-full wp-image-1328" title="dinnerrolls" src="http://sweetaspi.co.uk/content/images/2012/10/dinnerrolls.jpg" alt="" width="490" height="766" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/10/dinnerrolls.jpg"><img class="aligncenter size-full wp-image-1328" title="dinnerrolls" src="http://sweetaspi.co.uk/images/2012/10/dinnerrolls.jpg" alt="" width="490" height="766" /></a>
 
 Bread 5/15: light and soft dinner rolls from <a href="http://www.mykitchenaddiction.com/2011/05/light-and-soft-dinner-rolls/" target="_blank">My Kitchen Addiction</a>
 

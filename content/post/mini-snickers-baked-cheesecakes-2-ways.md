@@ -11,7 +11,7 @@ title = "Mini Snickers Baked Cheesecakes (2-ways!)"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2013/10/mini-baked-snickers-cheesecakes.jpg"><img class="alignnone size-full wp-image-1998" alt="mini baked snickers cheesecakes" src="http://sweetaspi.co.uk/content/images/2013/10/mini-baked-snickers-cheesecakes.jpg" width="490" height="367" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/10/mini-baked-snickers-cheesecakes.jpg"><img class="alignnone size-full wp-image-1998" alt="mini baked snickers cheesecakes" src="http://sweetaspi.co.uk/images/2013/10/mini-baked-snickers-cheesecakes.jpg" width="490" height="367" /></a>
 
 Woah it's been a while... Jon and I moved in to our new flat almost 2 weeks ago and we've only just had the internet installed at the weekend. But hooray we are all settled in and have a long list of TV shows to catch up on! We both love our new place, the kitchen is so big and we made the most of it over the weekend when we had a flat warming - I baked ciabattas and we cooked tapas. And I made these cheesecakes. They were delicious. We had to fight over the last piece.
 
@@ -19,7 +19,7 @@ I've wanted to make baked cheesecake for a while, and had a little look around f
 
 I can't decide on my favourite...
 
-<a href="http://sweetaspi.co.uk/content/images/2013/10/mini-baked-snickers-cheesecakes-2.jpg"><img class="alignnone size-full wp-image-1997" alt="mini baked snickers cheesecakes (2)" src="http://sweetaspi.co.uk/content/images/2013/10/mini-baked-snickers-cheesecakes-2.jpg" width="490" height="685" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/10/mini-baked-snickers-cheesecakes-2.jpg"><img class="alignnone size-full wp-image-1997" alt="mini baked snickers cheesecakes (2)" src="http://sweetaspi.co.uk/images/2013/10/mini-baked-snickers-cheesecakes-2.jpg" width="490" height="685" /></a>
 
 Here's how I made them both:
 

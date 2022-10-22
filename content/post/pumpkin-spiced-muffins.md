@@ -11,7 +11,7 @@ title = "Pumpkin Spiced Muffins"
 +++
 
 
-![pumpkin muffins](/content/images/2014/Oct/DSC_0491-1.JPG)
+![pumpkin muffins](/images/2014/Oct/DSC_0491-1.JPG)
 
 I've had a tin of pumpkin puree in my cupboard for quite some time, knowing that at some point I would bake something with it. Then a copy of olive magazine came through my door. I spotted the pumpkin pie spiced muffins recipe and knew instantly that was what I would bake.
 
@@ -19,9 +19,9 @@ They are so tasty and the sponge is lovely and moist. The spice isn't too overpo
 
 I still have half a tin of the pumpkin puree left, so I'm keeping my eye out for another recipe. Or perhaps I'll just have to make these again ;)
 
-![pumpkin muffins2](/content/images/2014/Oct/DSC_0474-1.JPG)
-![pumpkin muffins3](/content/images/2014/Oct/DSC_0479-1.JPG)
-![pumpkin muffins4](/content/images/2014/Oct/DSC_0494-1.JPG)
+![pumpkin muffins2](/images/2014/Oct/DSC_0474-1.JPG)
+![pumpkin muffins3](/images/2014/Oct/DSC_0479-1.JPG)
+![pumpkin muffins4](/images/2014/Oct/DSC_0494-1.JPG)
 
 Pumpkin pie spiced muffins from Olive magazine (Nov 2014). Makes 12.
 

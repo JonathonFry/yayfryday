@@ -11,7 +11,7 @@ title = "Baking Bread - Ciabatta"
 +++
 
 
-<a href="http://sweetaspi.co.uk/content/images/2013/08/ciabatta.jpg"><img class="alignnone size-full wp-image-1949" alt="ciabatta" src="http://sweetaspi.co.uk/content/images/2013/08/ciabatta.jpg" width="490" height="619" /></a>
+<a href="http://sweetaspi.co.uk/images/2013/08/ciabatta.jpg"><img class="alignnone size-full wp-image-1949" alt="ciabatta" src="http://sweetaspi.co.uk/images/2013/08/ciabatta.jpg" width="490" height="619" /></a>
 
 Bread 9/15: Ciabatta from Paul Hollywood's <a href="http://www.amazon.co.uk/dp/140881949X/ref=rdr_ext_tmb" target="_blank">How to Bake</a><a href="http://www.bbc.co.uk/food/recipes/eight-strand_plaited_57815" target="_blank">
 </a>

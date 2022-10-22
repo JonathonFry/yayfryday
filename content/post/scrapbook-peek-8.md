@@ -15,7 +15,7 @@ Since yesterday I've completed 4 more pages in my scrapbook. I think I only have
 
 Here's the pages I finished today, it looks pretty cluttered but I think looking at the pages as a whole it's not so crazy. Although these couple of days in LA were rather hectic!
 
-<a href="http://sweetaspi.co.uk/content/images/2012/07/scrap7.jpg"><img class="aligncenter size-full wp-image-1080" title="scrap7" src="http://sweetaspi.co.uk/content/images/2012/07/scrap7.jpg" alt="" width="490" height="1003" /></a>
+<a href="http://sweetaspi.co.uk/images/2012/07/scrap7.jpg"><img class="aligncenter size-full wp-image-1080" title="scrap7" src="http://sweetaspi.co.uk/images/2012/07/scrap7.jpg" alt="" width="490" height="1003" /></a>
 
 I'm still enjoying making it, and I'm now craving a Pink's chili dog!!
 

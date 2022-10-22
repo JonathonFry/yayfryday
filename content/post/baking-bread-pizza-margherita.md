@@ -11,7 +11,7 @@ title = "Baking Bread - Pizza Margherita"
 +++
 
 
-![Pizza Margherita](/content/images/2014/Apr/pizza-margherita.JPG)
+![Pizza Margherita](/images/2014/Apr/pizza-margherita.JPG)
 
 Bread 12/15: [Pizza margherita](http://www.bbcgoodfood.com/recipes/4683/pizza-margherita-in-4-easy-steps)
 
@@ -19,7 +19,7 @@ Notes: I replaced the 300g bread flour stated in the recipe with 225g '00' flour
 
 Review: It's been a couple years since I've made pizza from scratch, and although it's not a typical 'bread' I think the base counts! The pizza turned out really good, flavours were great and the only thing I think that would improve it is if I had a pizza stone and stretched the dough a little thinner.
 
-![Pizza Margherita 2](/content/images/2014/Apr/pizza-margherita-2.JPG)
+![Pizza Margherita 2](/images/2014/Apr/pizza-margherita-2.JPG)
 
 S. xo
 
