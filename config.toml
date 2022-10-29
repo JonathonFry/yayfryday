@@ -3,6 +3,7 @@ disablePathToLower = true
 languageCode = "en-gb"
 title = "YayFryDay"
 theme = "stack"
+canonifyURLs = true
 
 [permalinks]
     posts = '/:title/'
