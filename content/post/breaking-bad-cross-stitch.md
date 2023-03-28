@@ -11,7 +11,7 @@ title = "Breaking Bad Cross Stitch"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/09/IMGP4632-001.jpg"><img class="alignnone size-full wp-image-1981" alt="IMGP4632-001" src="http://sweetaspi.co.uk/images/2013/09/IMGP4632-001.jpg" width="490" height="593" /></a>
+<a href="https://yayfryday.com/images/2013/09/IMGP4632-001.jpg"><img class="alignnone size-full wp-image-1981" alt="IMGP4632-001" src="https://yayfryday.com/images/2013/09/IMGP4632-001.jpg" width="490" height="593" /></a>
 
 I start my new full-time job next Tuesday, and whilst I'm not working I've been filling my weekdays with baking, crafting and housework. And watching back to back episodes of Grey's Anatomy (addicted). Last week I decided to give cross stitching a go. It's cheap and time-consuming and I can watch as much TV as possible whilst doing it. I haven't cross stitched since I was 15 but it's super simple to pick up.
 

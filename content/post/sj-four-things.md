@@ -15,7 +15,7 @@ A couple of weeks ago Jon suggested we choose 4 different things that we can do 
 
 So here's our 4 things:
 
-<a href="http://sweetaspi.co.uk/images/2012/07/IMGP0129.jpg"><img class="aligncenter size-full wp-image-1065" title="fourthings" src="http://sweetaspi.co.uk/images/2012/07/IMGP0129.jpg" alt="" width="490" height="285" /></a>
+<a href="https://yayfryday.com/images/2012/07/IMGP0129.jpg"><img class="aligncenter size-full wp-image-1065" title="fourthings" src="https://yayfryday.com/images/2012/07/IMGP0129.jpg" alt="" width="490" height="285" /></a>
 
 We are both excited about doing stuff together and finding new places to go. We may only be in Edinburgh for one more year so it's about time we started seeing it and going to the places we've passed by where we'd say 'I'd love to go there one day'. We have short-term things to look forward to and things to work for.
 

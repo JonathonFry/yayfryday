@@ -11,7 +11,7 @@ title = "Herb Progress Wk6"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2012/09/herbs6.jpg"><img class="aligncenter size-full wp-image-1189" title="herbs6" src="http://sweetaspi.co.uk/images/2012/09/herbs6.jpg" alt="" width="490" height="640" /></a>
+<a href="https://yayfryday.com/images/2012/09/herbs6.jpg"><img class="aligncenter size-full wp-image-1189" title="herbs6" src="https://yayfryday.com/images/2012/09/herbs6.jpg" alt="" width="490" height="640" /></a>
 
 They survived!! After 2 weeks away in Cardiff I came back to my flat to find my herbs hadn't died. In fact, the soil from the chives and basil was still nice and moist. As you can see from the pics they aren't looking too great though.
 

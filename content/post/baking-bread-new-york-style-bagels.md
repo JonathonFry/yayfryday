@@ -11,7 +11,7 @@ title = "Baking Bread - New York-Style Bagels"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/09/bagels.jpg"><img class="alignnone size-full wp-image-1970" alt="bagels" src="http://sweetaspi.co.uk/images/2013/09/bagels.jpg" width="490" height="733" /></a>
+<a href="https://yayfryday.com/images/2013/09/bagels.jpg"><img class="alignnone size-full wp-image-1970" alt="bagels" src="https://yayfryday.com/images/2013/09/bagels.jpg" width="490" height="733" /></a>
 
 Bread 10/15: <a href="http://www.sophisticatedgourmet.com/2009/10/new-york-style-bagel-recipe/" target="_blank">New York-Style Bagels</a><a href="http://www.bbc.co.uk/food/recipes/eight-strand_plaited_57815" target="_blank">
 </a>

@@ -11,7 +11,7 @@ title = "Baking Bread - Cinnamon Pull-Apart Bread"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2012/09/cinbread.jpg"><img class="aligncenter size-full wp-image-1238" title="cinbread" src="http://sweetaspi.co.uk/images/2012/09/cinbread.jpg" alt="" width="490" height="712" /></a>
+<a href="https://yayfryday.com/images/2012/09/cinbread.jpg"><img class="aligncenter size-full wp-image-1238" title="cinbread" src="https://yayfryday.com/images/2012/09/cinbread.jpg" alt="" width="490" height="712" /></a>
 
 Bread 2/15: cinnamon sugar pull-apart bread from <a href="http://joythebaker.com/2011/03/cinnamon-sugar-pull-apart-bread/" target="_blank">Joy the Baker</a>
 

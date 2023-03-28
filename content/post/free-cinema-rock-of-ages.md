@@ -11,7 +11,7 @@ title = "Free Cinema - Rock of Ages"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2012/06/rockofages.jpg"><img class="aligncenter size-full wp-image-811" title="rockofages" src="http://sweetaspi.co.uk/images/2012/06/rockofages.jpg" alt="" width="490" height="368" /></a>
+<a href="https://yayfryday.com/images/2012/06/rockofages.jpg"><img class="aligncenter size-full wp-image-811" title="rockofages" src="https://yayfryday.com/images/2012/06/rockofages.jpg" alt="" width="490" height="368" /></a>
 
 Free tickets for screenings of <a href="http://www.imdb.com/title/tt1336608/" target="_blank">Rock of Ages</a> have been released. Looks like a fun movie, if you like this kind of film, starring Tom Cruise, etc. See below for the links.
 <ul>

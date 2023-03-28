@@ -11,7 +11,7 @@ title = "Free Cinema - Friends with Kids"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2012/06/friends_with_kids.jpg"><img class="aligncenter size-full wp-image-805" title="friends_with_kids" src="http://sweetaspi.co.uk/images/2012/06/friends_with_kids.jpg" alt="" width="490" height="297" /></a>
+<a href="https://yayfryday.com/images/2012/06/friends_with_kids.jpg"><img class="aligncenter size-full wp-image-805" title="friends_with_kids" src="https://yayfryday.com/images/2012/06/friends_with_kids.jpg" alt="" width="490" height="297" /></a>
 
 Quite a lot of codes for free screenings of <a href="http://www.imdb.com/title/tt1720616/" target="_blank">Friends with Kids</a> have been released recently, so here are the links:
 <ul>

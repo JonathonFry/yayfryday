@@ -13,7 +13,7 @@ title = "DIY: Fabric Corner Bookmark"
 
 So I've still got lots of <a title="Free Fabric Samples" href="http://sweetaspi.co.uk/free-fabric-samples/">free fabric samples</a> to use and so I decided to make a little corner bookmark out of a piece of leather and soft wool. The edges of the samples are already cut in a zigzag so I thought I'd keep it that way.
 
-<a href="http://sweetaspi.co.uk/images/2012/06/bookmark.jpg"><img class="aligncenter size-full wp-image-856" title="bookmark" src="http://sweetaspi.co.uk/images/2012/06/bookmark.jpg" alt="" width="490" height="548" /></a>
+<a href="https://yayfryday.com/images/2012/06/bookmark.jpg"><img class="aligncenter size-full wp-image-856" title="bookmark" src="https://yayfryday.com/images/2012/06/bookmark.jpg" alt="" width="490" height="548" /></a>
 
 Using the corners of a book I drew outlines of where to cut the material to get two triangles. Then I simply sewn the two pieces together along the edges to create a pocket. The leather sample is pretty thick and so it was quite hard getting the needle through but I got there in the end!
 

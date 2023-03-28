@@ -11,7 +11,7 @@ title = "Freshen Up"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/06/plants.jpg"><img class="alignnone size-full wp-image-1845" alt="plants" src="http://sweetaspi.co.uk/images/2013/06/plants.jpg" width="490" height="1019" /></a>
+<a href="https://yayfryday.com/images/2013/06/plants.jpg"><img class="alignnone size-full wp-image-1845" alt="plants" src="https://yayfryday.com/images/2013/06/plants.jpg" width="490" height="1019" /></a>
 
 The past 4 days I've spent spring cleaning the flat. I've cleared out so much stuff and made a little money selling a few things. I've rearranged the bedroom furniture and switched around shelving in the kitchen cupboards. It's kept me busy whilst Jon's been working, and since we are planning to move soon I figured it'd be a good time to get it done.
 

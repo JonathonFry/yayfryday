@@ -11,7 +11,7 @@ title = "Lunch at Papii"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/02/papii.jpg"><img class="alignnone size-full wp-image-1486" alt="Camera 360" src="http://sweetaspi.co.uk/images/2013/02/papii.jpg" width="490" height="1123" /></a>
+<a href="https://yayfryday.com/images/2013/02/papii.jpg"><img class="alignnone size-full wp-image-1486" alt="Camera 360" src="https://yayfryday.com/images/2013/02/papii.jpg" width="490" height="1123" /></a>
 
 On my birthday, Jon and I headed into town for lunch. I'd read great things about Papii on <a href="http://www.tripadvisor.co.uk/Restaurant_Review-g186525-d2212342-Reviews-Papii-Edinburgh_Scotland.html" target="_blank">TripAdvisor</a> and since it's in the top ten places to eat in Edinburgh it had to be tried!
 

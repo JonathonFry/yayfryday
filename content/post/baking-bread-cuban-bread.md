@@ -11,7 +11,7 @@ title = "Baking Bread - Cuban Bread"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/01/cubanbread.jpg"><img class="alignnone size-full wp-image-1435" alt="cubanbread" src="http://sweetaspi.co.uk/images/2013/01/cubanbread.jpg" width="490" height="1748" /></a>
+<a href="https://yayfryday.com/images/2013/01/cubanbread.jpg"><img class="alignnone size-full wp-image-1435" alt="cubanbread" src="https://yayfryday.com/images/2013/01/cubanbread.jpg" width="490" height="1748" /></a>
 
 Bread 7/15: Cuban Bread from <a href="http://pepperandsherry.com/2012/02/04/cuban-bread/" target="_blank">Pepper &amp; Sherry</a><a href="http://www.bbc.co.uk/food/recipes/eight-strand_plaited_57815" target="_blank">
 </a>
@@ -24,5 +24,5 @@ Thanks for the comment that shared this lovely recipe, and if you have any more 
 
 S. xo
 
-<a href="http://sweetaspi.co.uk/images/2013/01/cubanclose.jpg"><img class="alignnone size-full wp-image-1436" alt="cubanclose" src="http://sweetaspi.co.uk/images/2013/01/cubanclose.jpg" width="490" height="351" /></a>
+<a href="https://yayfryday.com/images/2013/01/cubanclose.jpg"><img class="alignnone size-full wp-image-1436" alt="cubanclose" src="https://yayfryday.com/images/2013/01/cubanclose.jpg" width="490" height="351" /></a>
 

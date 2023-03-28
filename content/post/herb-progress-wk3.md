@@ -11,7 +11,7 @@ title = "Herb Progress Wk3"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2012/08/herbs31.jpg"><img class="aligncenter size-full wp-image-1165" title="herbs3" src="http://sweetaspi.co.uk/images/2012/08/herbs31.jpg" alt="" width="490" height="595" /></a>
+<a href="https://yayfryday.com/images/2012/08/herbs31.jpg"><img class="aligncenter size-full wp-image-1165" title="herbs3" src="https://yayfryday.com/images/2012/08/herbs31.jpg" alt="" width="490" height="595" /></a>
 
 As you can see they're all still alive and growing :) I thinned the basil and parsley down quite a lot, I felt bad doing it but they were so overcrowded (the parsley's still a bit wild). The parsley was pretty difficult as it's become quite tangled but I managed to thin out about half of the seedlings. And now they are all starting to grow their second set of 'true leaves'.
 

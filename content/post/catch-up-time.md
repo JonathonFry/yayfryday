@@ -34,11 +34,11 @@ Would definitely go back there for more!
 
 We also had a wander around the shops, and went to <a href="http://www.anthropologie.eu/" target="_blank">Anthropologie</a> which I'd never been to before but Jon's parents had been whilst in the US. It's such a nice shop, pretty expensive, but they had a sale! Jon's Mum found this plate and we had to get it, down to £3 from £12:
 
-<a href="http://sweetaspi.co.uk/images/2012/04/purple-plate.jpg"><img class="aligncenter size-full wp-image-554" title="purple plate" src="http://sweetaspi.co.uk/images/2012/04/purple-plate.jpg" alt="" width="490" height="630" /></a>
+<a href="https://yayfryday.com/images/2012/04/purple-plate.jpg"><img class="aligncenter size-full wp-image-554" title="purple plate" src="https://yayfryday.com/images/2012/04/purple-plate.jpg" alt="" width="490" height="630" /></a>
 
 So now they've gone back we are sad they've gone and we have to get back to studying. Revision plan has kicked back in and my first exam is this Tuesday... :/ Starting to stress but thing like tea, cake and highlighters make it all a bit better.
 
-<a href="http://sweetaspi.co.uk/images/2012/04/uni-work.jpg"><img class="aligncenter size-full wp-image-555" title="uni work" src="http://sweetaspi.co.uk/images/2012/04/uni-work.jpg" alt="" width="490" height="183" /></a>
+<a href="https://yayfryday.com/images/2012/04/uni-work.jpg"><img class="aligncenter size-full wp-image-555" title="uni work" src="https://yayfryday.com/images/2012/04/uni-work.jpg" alt="" width="490" height="183" /></a>
 
 So that's my week so far. The rest will be a nice evening tonight then stuck at my desk trying to get all this revision in to my head. I shall be sleeping with symbols in my dreams.
 

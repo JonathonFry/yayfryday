@@ -15,7 +15,7 @@ Today we enjoyed the weekend sunshine and headed out to the <a href="http://www.
 
 We only planned on stopping by for an hour, but ended up staying for longer, although we still only saw around a third of the gardens. We walked through the Chinese Hillside, Rock Garden and Herbaceous Border. There was a wedding reception at the Caledonian Hall opposite the Rock Garden and it looked beautiful, this was probably my favourite garden. There are views of Carlton Hill and Arthur's Seat here, as well as a waterfall and of course lots of pretty flowers.
 
-<a href="http://sweetaspi.co.uk/images/2012/08/rbge.jpg"><img class="aligncenter size-full wp-image-1117" title="rbge" src="http://sweetaspi.co.uk/images/2012/08/rbge.jpg" alt="" width="490" height="1635" /></a>
+<a href="https://yayfryday.com/images/2012/08/rbge.jpg"><img class="aligncenter size-full wp-image-1117" title="rbge" src="https://yayfryday.com/images/2012/08/rbge.jpg" alt="" width="490" height="1635" /></a>
 
 Behind the Herbaceous Border is a huge beech hedge, we walked through it to these little gardens where fruit and vegetables were growing. There were rows for local primary schools to grow their own too which was cute.
 

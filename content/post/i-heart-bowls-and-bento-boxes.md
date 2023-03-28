@@ -16,7 +16,7 @@ I have a thing for bowls. I wanna have lots of different coloured and sized ones
 Sadly my cupboards in the kitchen are teeny so I can only have a couple, but I enjoy window shopping for bowls almost as much as owning them. Is that weird?
 
 Here are a few of my current favourites a long with some cute bento boxes:
-<p style="text-align: right;"><a href="http://sweetaspi.co.uk/images/2012/04/bowls-and-bento-boxes.jpg"><img class="size-full wp-image-576 aligncenter" title="bowls and bento boxes" src="http://sweetaspi.co.uk/images/2012/04/bowls-and-bento-boxes.jpg" alt="" width="490" height="1162" /></a></p>
+<p style="text-align: right;"><a href="https://yayfryday.com/images/2012/04/bowls-and-bento-boxes.jpg"><img class="size-full wp-image-576 aligncenter" title="bowls and bento boxes" src="https://yayfryday.com/images/2012/04/bowls-and-bento-boxes.jpg" alt="" width="490" height="1162" /></a></p>
 <p style="text-align: left;">[ordered_list style="decimal"]</p>
 
 <ol style="text-align: left;">

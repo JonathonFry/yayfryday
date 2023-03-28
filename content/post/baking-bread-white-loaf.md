@@ -11,7 +11,7 @@ title = "Baking Bread - White Loaf"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2012/09/whiteloaf.jpg"><img class="aligncenter size-full wp-image-1225" title="whiteloaf" src="http://sweetaspi.co.uk/images/2012/09/whiteloaf.jpg" alt="" width="490" height="654" /></a>
+<a href="https://yayfryday.com/images/2012/09/whiteloaf.jpg"><img class="aligncenter size-full wp-image-1225" title="whiteloaf" src="https://yayfryday.com/images/2012/09/whiteloaf.jpg" alt="" width="490" height="654" /></a>
 
 Bread 1/15 : white loaf from <a href="http://www.amazon.co.uk/Baking-Made-Easy-Lorraine-Pascale/dp/0007275943/ref=sr_1_1?ie=UTF8&amp;qid=1347122133&amp;sr=8-1" target="_blank">Lorraine Pascale's Baking Made Easy</a>
 

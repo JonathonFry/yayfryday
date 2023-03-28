@@ -15,7 +15,7 @@ Last night I was searching the web for summer internships and work experience. I
 
 Whilst I was looking I stumbled upon the <a href="http://runrocknroll.competitor.com/" target="_blank">Rock ‘n’ Roll Marathon Series</a>, a collection of running events across America known for lining routes with live bands, cheerleaders and themed water stations. This year it is being brought over to Europe with events in Edinburgh, Dublin, Madrid and Lisbon. Ooh Edinburgh!
 
-<a href="http://sweetaspi.co.uk/images/2012/04/edin-rocknroll.jpg"><img class="aligncenter size-full wp-image-518" title="edin rocknroll" src="http://sweetaspi.co.uk/images/2012/04/edin-rocknroll.jpg" alt="" width="490" height="70" /></a>
+<a href="https://yayfryday.com/images/2012/04/edin-rocknroll.jpg"><img class="aligncenter size-full wp-image-518" title="edin rocknroll" src="https://yayfryday.com/images/2012/04/edin-rocknroll.jpg" alt="" width="490" height="70" /></a>
 
 So I went on <a href="http://uk.competitor.com/edinburgh" target="_blank">Rock ‘n’ Roll Edinburgh</a> and the 1/2 marathon is on the 15th April. I’m no way fit enough to take part, but they have <a href="http://uk.competitor.com/edinburgh/volunteer" target="_blank">volunteering opportunities</a> so I signed up :) It looks like a fun event to be part of so am looking forward to it, you choose what shift you fancy doing with lots of choices of what exactly to do, and they need support from volunteers. And it’s all for <a href="http://uk.competitor.com/edinburgh/charity" target="_blank">charity</a> of course!
 <blockquote>To register for the marathon: <a href="http://uk.competitor.com/edinburgh/register" target="_blank">click here</a> (by 8/4/12)

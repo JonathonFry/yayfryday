@@ -11,25 +11,25 @@ title = "C25K: Week Four"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/04/W4.jpg"><img class="alignnone size-full wp-image-1665" alt="W4" src="http://sweetaspi.co.uk/images/2013/04/W4.jpg" width="490" height="231" /></a>
+<a href="https://yayfryday.com/images/2013/04/W4.jpg"><img class="alignnone size-full wp-image-1665" alt="W4" src="https://yayfryday.com/images/2013/04/W4.jpg" width="490" height="231" /></a>
 
 > Begin with a brisk 5-minute walk, then 3 minutes of running, 90 seconds of walking, 5 minutes of running, 2½ minutes of walking, 3 minutes of running, 90 seconds of walking, 5 minutes of running.
 
 It's week 4 and still enjoying it!
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 4 Run 1:</strong></span></p>
-<a href="http://sweetaspi.co.uk/images/2013/04/W4R1ib.jpg"><img class="alignnone size-full wp-image-1647" alt="W4R1" src="http://sweetaspi.co.uk/images/2013/04/W4R1ib.jpg" width="490" height="491" /></a>
+<a href="https://yayfryday.com/images/2013/04/W4R1ib.jpg"><img class="alignnone size-full wp-image-1647" alt="W4R1" src="https://yayfryday.com/images/2013/04/W4R1ib.jpg" width="490" height="491" /></a>
 
 <strong>When / Where / Weather:</strong> Saturday / Union Canal / sun
 
 <strong>Comments: </strong>Our first 5 min run today. The sun was out and we actually took our gloves off halfway as we started to sweat. Felt really good after the run, and pleased with the progress and improvement since week one. Also, the daffodils are finally coming out!
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 4 Run 2:</strong></span></p>
-<a href="http://sweetaspi.co.uk/images/2013/04/W4R2ib.jpg"><img class="alignnone size-full wp-image-1663" alt="W4R2" src="http://sweetaspi.co.uk/images/2013/04/W4R2ib.jpg" width="490" height="490" /></a>
+<a href="https://yayfryday.com/images/2013/04/W4R2ib.jpg"><img class="alignnone size-full wp-image-1663" alt="W4R2" src="https://yayfryday.com/images/2013/04/W4R2ib.jpg" width="490" height="490" /></a>
 
 <strong>When / Where / Weather:</strong> Monday / Union Canal / cloudy
 
 <strong>Comments: </strong>Out early this morning as we had to park at a pay &amp; display spot last night as there were no spaces left so the car needed moving. Along the canal there were lots of kids and parents doing the school run and commuters cycling so we had to run in single file most of the time. Both of our legs were still aching after we <a title="Walking in the Pentlands" href="http://sweetaspi.co.uk/2013/04/08/walking-in-the-pentlands/">walked in the Pentlands</a> on Saturday, so we struggled a bit to keep them moving. Managed it though and it felt great.
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 4 Run 3:</strong></span></p>
-<a href="http://sweetaspi.co.uk/images/2013/04/W4R3ib.jpg"><img class="alignnone size-full wp-image-1678" alt="W4R3" src="http://sweetaspi.co.uk/images/2013/04/W4R3ib.jpg" width="490" height="490" /></a>
+<a href="https://yayfryday.com/images/2013/04/W4R3ib.jpg"><img class="alignnone size-full wp-image-1678" alt="W4R3" src="https://yayfryday.com/images/2013/04/W4R3ib.jpg" width="490" height="490" /></a>
 
 <strong>When / Where / Weather:</strong> Thursday / Union Canal / clouds
 

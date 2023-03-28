@@ -11,7 +11,7 @@ title = "C25K: Week One"
 +++
 
 
-<a href="http://sweetaspi.co.uk/images/2013/03/BEGIN.jpg"><img class="alignnone size-full wp-image-1569" alt="Camera 360" src="http://sweetaspi.co.uk/images/2013/03/BEGIN.jpg" width="490" height="245" /></a>
+<a href="https://yayfryday.com/images/2013/03/BEGIN.jpg"><img class="alignnone size-full wp-image-1569" alt="Camera 360" src="https://yayfryday.com/images/2013/03/BEGIN.jpg" width="490" height="245" /></a>
 
 Jon and I have begun to run.
 
@@ -22,7 +22,7 @@ We talked about running and looked at the <a href="http://www.nhs.uk/LiveWell/c2
 > Begin with a brisk 5-minute walk, then alternate 60 seconds of running and 90 seconds of walking, for a total of 20 minutes.
 
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 1 Run 1:</strong></span></p>
-<a href="http://sweetaspi.co.uk/images/2013/03/W1R1.jpg"><img class="alignnone size-full wp-image-1570" alt="Camera 360" src="http://sweetaspi.co.uk/images/2013/03/W1R1.jpg" width="490" height="653" /></a>
+<a href="https://yayfryday.com/images/2013/03/W1R1.jpg"><img class="alignnone size-full wp-image-1570" alt="Camera 360" src="https://yayfryday.com/images/2013/03/W1R1.jpg" width="490" height="653" /></a>
 
 <strong>When / Where / Weather:</strong> Sunday / Holyrood Park / rain
 
@@ -30,12 +30,12 @@ We talked about running and looked at the <a href="http://www.nhs.uk/LiveWell/c2
 
 p.s. the next 2 days both of our legs ached haha we need to keep it up.
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 1 Run 2:</strong></span></p>
-<p style="text-align: center;"><a href="http://sweetaspi.co.uk/images/2013/03/W1R2.jpg"><img class="size-full wp-image-1571 aligncenter" alt="W1R2" src="http://sweetaspi.co.uk/images/2013/03/W1R2.jpg" width="374" height="498" /></a></p>
+<p style="text-align: center;"><a href="https://yayfryday.com/images/2013/03/W1R2.jpg"><img class="size-full wp-image-1571 aligncenter" alt="W1R2" src="https://yayfryday.com/images/2013/03/W1R2.jpg" width="374" height="498" /></a></p>
 <strong>When / Where / Weather:</strong> Tuesday / Holyrood Park / snow &amp; wind
 
 <strong>Comments: </strong>Back on to Week 1 as I've sorted my iPod out now! The weather was really bad, strong winds and snow made this feel like such a workout. My hands were numb and it felt like I was running backwards when the wind was against me as I was running up a slight incline. Apparently there was a weather warning, but it made it a challenge and I'm glad I did it! After coming home and having a warm shower it was worth it :)
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 1 Run 3:</strong></span></p>
-<a href="http://sweetaspi.co.uk/images/2013/03/W1R3.jpg"><img class="alignnone size-full wp-image-1572" alt="Camera 360" src="http://sweetaspi.co.uk/images/2013/03/W1R3.jpg" width="490" height="653" /></a>
+<a href="https://yayfryday.com/images/2013/03/W1R3.jpg"><img class="alignnone size-full wp-image-1572" alt="Camera 360" src="https://yayfryday.com/images/2013/03/W1R3.jpg" width="490" height="653" /></a>
 
 <strong>When / Where / Weather:</strong> Thursday / Union Canal / sunshine
 
