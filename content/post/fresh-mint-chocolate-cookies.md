@@ -17,7 +17,7 @@ I am back from my holiday to Poland (more on that to follow) and am enjoying the
 
 I brought some fresh home grown mint back from Poland, thanks to Natalie's mum, and decided to use it to make these cookies. Mint choc chip is one of my favourite flavours, and is usually my first choice when choosing ice-cream.
 
-I followed my go-to <a href="http://sweetaspi.co.uk/2012/05/31/chewy-millies-cookie-style-cookies/" target="_blank">Chewy ‘Millie’s Cookie Style’ Cookies recipe</a>, but replaced the 225g flourwith 185g self-raising flour and 40g cocoa powder. I added the chopped mint, which was around 2.5 tbsp, at the end along with 200g dark chocolate chips.
+I followed my go-to <a href="https://yayfryday.com/post/chewy-millies-cookie-style-cookies/" target="_blank">Chewy ‘Millie’s Cookie Style’ Cookies recipe</a>, but replaced the 225g flourwith 185g self-raising flour and 40g cocoa powder. I added the chopped mint, which was around 2.5 tbsp, at the end along with 200g dark chocolate chips.
 
 <a href="https://yayfryday.com/images/2013/06/mintcookiedough.jpg"><img class="alignnone size-full wp-image-1811" alt="mintcookiedough" src="https://yayfryday.com/images/2013/06/mintcookiedough.jpg" width="490" height="367" /></a>
 

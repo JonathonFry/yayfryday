@@ -15,7 +15,7 @@ title = "Zermatt, Switzerland (video)"
 
 Jon & I recorded a few video clips whilst we were in Zermatt, and I stuck them together to make the video above. *(sorry about the youtube music...)*
 
-You can see all our photos from the trip [here](http://sweetaspi.co.uk/2015/02/09/zermatt-switzerland-in-the-fog-snow/) and [here](http://sweetaspi.co.uk/2015/02/09/zermatt-switzerland-in-the-sun/).
+You can see all our photos from the trip [here](https://yayfryday.com/post/zermatt-switzerland-in-the-fog-snow/) and [here](https://yayfryday.com/post/zermatt-switzerland-in-the-sun/).
 
 S. xo
 

@@ -13,7 +13,7 @@ title = "Ben Vorlich - Munro #2"
 
 ![BenVorlich1](/images/2014/Jul/13-Jul-2014-14_05_11.jpg)
 
-There are 282 Munros in Scotland and this is our second ([Ben Lomond](http://sweetaspi.co.uk/2013/08/29/ben-lomond/) was our first). Ben Vorlich is 985m (3,232ft) high. We parked the car at Loch Earn and followed the trail in almost a straight line up to the top. It was a fairly steady climb, although the final climb is pretty rocky and steep. I was very slow at going down this part!
+There are 282 Munros in Scotland and this is our second ([Ben Lomond](https://yayfryday.com/post/ben-lomond/) was our first). Ben Vorlich is 985m (3,232ft) high. We parked the car at Loch Earn and followed the trail in almost a straight line up to the top. It was a fairly steady climb, although the final climb is pretty rocky and steep. I was very slow at going down this part!
 
 It was very chilly at the top, which was refreshing after how hot I had felt on the way up.
 

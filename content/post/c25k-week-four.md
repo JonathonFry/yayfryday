@@ -27,7 +27,7 @@ It's week 4 and still enjoying it!
 
 <strong>When / Where / Weather:</strong> Monday / Union Canal / cloudy
 
-<strong>Comments: </strong>Out early this morning as we had to park at a pay &amp; display spot last night as there were no spaces left so the car needed moving. Along the canal there were lots of kids and parents doing the school run and commuters cycling so we had to run in single file most of the time. Both of our legs were still aching after we <a title="Walking in the Pentlands" href="http://sweetaspi.co.uk/2013/04/08/walking-in-the-pentlands/">walked in the Pentlands</a> on Saturday, so we struggled a bit to keep them moving. Managed it though and it felt great.
+<strong>Comments: </strong>Out early this morning as we had to park at a pay &amp; display spot last night as there were no spaces left so the car needed moving. Along the canal there were lots of kids and parents doing the school run and commuters cycling so we had to run in single file most of the time. Both of our legs were still aching after we <a title="Walking in the Pentlands" href="https://yayfryday.com/post/walking-in-the-pentlands/">walked in the Pentlands</a> on Saturday, so we struggled a bit to keep them moving. Managed it though and it felt great.
 <p style="text-align: center;"><span style="text-decoration: underline;"><strong>Week 4 Run 3:</strong></span></p>
 <a href="https://yayfryday.com/images/2013/04/W4R3ib.jpg"><img class="alignnone size-full wp-image-1678" alt="W4R3" src="https://yayfryday.com/images/2013/04/W4R3ib.jpg" width="490" height="490" /></a>
 

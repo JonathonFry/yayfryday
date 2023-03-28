@@ -33,7 +33,7 @@ Divide the cookie dough in to 20 evenly sized pieces and place on to trays lined
 
 <a href="https://yayfryday.com/images/2013/09/doublechoccookie3.jpg"><img class="alignnone size-full wp-image-1958" alt="doublechoccookie3" src="https://yayfryday.com/images/2013/09/doublechoccookie3.jpg" width="490" height="699" /></a>
 
-Want more chewy cookies like this? Try these simple <a href="http://sweetaspi.co.uk/2012/05/31/chewy-millies-cookie-style-cookies/" target="_blank">chocolate chip cookies</a>, lovely <a href="http://sweetaspi.co.uk/2013/06/01/fresh-mint-chocolate-cookies/" target="_blank">fresh mint chocolate cookies</a>, or these amazing <a href="http://sweetaspi.co.uk/2013/03/29/chewy-chocolate-toffee-waffle-cookies/" target="_blank">chocolate toffee waffle cookies</a>!
+Want more chewy cookies like this? Try these simple <a href="https://yayfryday.com/post/chewy-millies-cookie-style-cookies/" target="_blank">chocolate chip cookies</a>, lovely <a href="https://yayfryday.com/post/fresh-mint-chocolate-cookies/" target="_blank">fresh mint chocolate cookies</a>, or these amazing <a href="https://yayfryday.com/post/chewy-chocolate-toffee-waffle-cookies/" target="_blank">chocolate toffee waffle cookies</a>!
 
 S. xo
 

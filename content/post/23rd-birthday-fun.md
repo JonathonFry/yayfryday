@@ -11,16 +11,16 @@ title = "23rd Birthday Fun"
 +++
 
 
-OK so my birthday was almost a month ago now so this is kinda late (dissertations suck), but I wanted to write a quick post about it like I did <a href="http://sweetaspi.co.uk/2012/02/13/birthday-fun/" target="_blank">last year</a>. I'd just like to say thank you to everyone for the birthday wishes, cards, gifts and celebrations. I had a fantastic one :)
+OK so my birthday was almost a month ago now so this is kinda late (dissertations suck), but I wanted to write a quick post about it like I did <a href="https://yayfryday.com/post/birthday-fun/" target="_blank">last year</a>. I'd just like to say thank you to everyone for the birthday wishes, cards, gifts and celebrations. I had a fantastic one :)
 
 Again, as I share my birthday with 2 friends (they're twins!), we all went out in Edinburgh to celebrate. I bought a new dress with my birthday cash from ASOS, this one to be precise:
 <p style="text-align: center;"><a href="https://yayfryday.com/images/2013/03/bdaydress.jpg"><img class="alignnone size-full wp-image-1524" alt="bdaydress" src="https://yayfryday.com/images/2013/03/bdaydress.jpg" width="490" height="625" /></a>
 <a href="http://www.asos.com//Glamorous/Glamorous-Belted-Skater-Dress-In-Geo-Maze-Print/Prod/pgeproduct.aspx?iid=2738198" target="_blank">Glamorous Belted Skater Dress In Geo Maze Print</a></p>
-which I loved :) Of course, I painted my nails too in my new <a title="Nails in Coralicious" href="http://sweetaspi.co.uk/2013/03/02/nails-in-coralicious/">Coralicious polish</a>, love the bright colour against the black and white print.
+which I loved :) Of course, I painted my nails too in my new <a title="Nails in Coralicious" href="https://yayfryday.com/post/nails-in-coralicious/">Coralicious polish</a>, love the bright colour against the black and white print.
 
 <a href="https://yayfryday.com/images/2013/03/nails+dress.jpg"><img class="alignnone size-full wp-image-1533" alt="nails+dress" src="https://yayfryday.com/images/2013/03/nails+dress.jpg" width="490" height="353" /></a>
 
-During the day Jon took me for <a title="Lunch at Papii" href="http://sweetaspi.co.uk/2013/02/12/lunch-at-papii/" target="_blank">lunch at Papii</a>, I popped in to uni for a couple of classes then returned home for a chinese takeaway. I also received lots of cool gifts, here's a couple I just had to share (excuse the lack of lighting!)...
+During the day Jon took me for <a title="Lunch at Papii" href="https://yayfryday.com/post/lunch-at-papii/" target="_blank">lunch at Papii</a>, I popped in to uni for a couple of classes then returned home for a chinese takeaway. I also received lots of cool gifts, here's a couple I just had to share (excuse the lack of lighting!)...
 
 <a href="https://yayfryday.com/images/2013/03/travelbook.jpg"><img class="alignnone size-full wp-image-1535" alt="travelbook" src="https://yayfryday.com/images/2013/03/travelbook.jpg" width="490" height="903" /></a>
 

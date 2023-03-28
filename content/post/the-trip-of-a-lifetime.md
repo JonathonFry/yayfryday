@@ -17,7 +17,7 @@ Consists of : <strong>10,912 </strong>miles flown, <strong>3,500 </strong>mile
 
 <a title="Map of USA by jonfry22, on Flickr" href="http://www.flickr.com/photos/jonfry22/5856233835/"><img alt="Map of USA" src="http://farm3.static.flickr.com/2729/5856233835_91021812aa.jpg" width="500" height="368" /></a>
 
-For all the details in full please check out the <a title="Road Trip USA" href="http://sweetaspi.co.uk/2011/07/23/road-trip-usa/">Road Trip USA page</a>.
+For all the details in full please check out the <a title="Road Trip USA" href="https://yayfryday.com/post/road-trip-usa/">Road Trip USA page</a>.
 
 &nbsp;
 

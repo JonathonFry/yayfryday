@@ -13,7 +13,7 @@ title = "Blackford Hill"
 
 ![blackford hill](/images/2014/Sep/DSC_0071.JPG)
 
-For our first [new camera](http://sweetaspi.co.uk/2014/09/05/new-camera-new-shoes/) trip, Jon & I went for a walk around Blackford Hill. I wrote about this place two years ago ([here](http://sweetaspi.co.uk/2012/09/05/life-lately-2/)). It's funny to look at the photos I took up on the hill back then (probably taken on my Orange San Francisco phone!). There are always lots of photographers up there so I knew it would be a good spot to try out the camera.
+For our first [new camera](https://yayfryday.com/post/new-camera-new-shoes/) trip, Jon & I went for a walk around Blackford Hill. I wrote about this place two years ago ([here](https://yayfryday.com/post/life-lately-2/)). It's funny to look at the photos I took up on the hill back then (probably taken on my Orange San Francisco phone!). There are always lots of photographers up there so I knew it would be a good spot to try out the camera.
 
 ![blackford hill1](/images/2014/Sep/DSC_0042-copy.jpg)
 ![blackford hill2](/images/2014/Sep/DSC_0070-copy.jpg)

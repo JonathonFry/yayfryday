@@ -13,7 +13,7 @@ title = "Ampersand Cross Stitch"
 
 <a href="https://yayfryday.com/images/2013/11/ampersand-cross-stitch.jpg"><img class="alignnone size-full wp-image-2025" alt="ampersand cross stitch" src="https://yayfryday.com/images/2013/11/ampersand-cross-stitch.jpg" width="490" height="367" /></a>
 
-After finishing my <a title="Breaking Bad Cross Stitch" href="http://sweetaspi.co.uk/2013/09/10/breaking-bad-cross-stitch/" target="_blank">Breaking Bad cross stitch</a>, I really wanted to make another one and since I had leftover supplies I dove straight in. (I actually finished this cross stitch during Summer over a couple of days - it's taken me this long to get a hoop to frame it!). I was looking for something simple to sew and after searching pinterest decided on a curly ampersand.
+After finishing my <a title="Breaking Bad Cross Stitch" href="https://yayfryday.com/post/breaking-bad-cross-stitch/" target="_blank">Breaking Bad cross stitch</a>, I really wanted to make another one and since I had leftover supplies I dove straight in. (I actually finished this cross stitch during Summer over a couple of days - it's taken me this long to get a hoop to frame it!). I was looking for something simple to sew and after searching pinterest decided on a curly ampersand.
 
 <a href="https://yayfryday.com/images/2013/11/ampersand-plan.jpg"><img class="alignnone size-full wp-image-2023" alt="ampersand plan" src="https://yayfryday.com/images/2013/11/ampersand-plan.jpg" width="490" height="580" /></a>
 
