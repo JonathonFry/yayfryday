@@ -19,7 +19,7 @@ Making the most of the sunshine again today. Oh we'd love to live somewhere that
 
 We had a walk about, watched the swans and people passing by. We noticed the same cyclist go by us 4 times in a short space of time, and the loop is 3.3miles up and down, go him!
 
-Now I'm home I think I shall make some <a title="Philly with Cadbury Chocolate Cheesecakes" href="http://sweetaspi.co.uk/philly-with-cadbury-chocolate-cheesecakes/">cadbury philly cheesecakes</a> (as requested by Jon), watch some TV and think about what to do this week. We are off back to Cardiff next Thursday for 2 weeks - can't wait!!
+Now I'm home I think I shall make some <a title="Philly with Cadbury Chocolate Cheesecakes" href="https://yayfryday.com/post/philly-with-cadbury-chocolate-cheesecakes/">cadbury philly cheesecakes</a> (as requested by Jon), watch some TV and think about what to do this week. We are off back to Cardiff next Thursday for 2 weeks - can't wait!!
 
 S. xo
 

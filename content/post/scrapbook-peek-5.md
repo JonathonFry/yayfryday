@@ -21,5 +21,5 @@ I'm still on San Francisco and have a couple of pages still to do here, then onl
 
 S. xo
 
-<em>{Scrapbook peeks are little glimpses of the scrapbook I’ve been putting together of a road trip in the US from last summer. Here are my previous peeks: <a title="A Chilled Out Weekend" href="http://sweetaspi.co.uk/a-chilled-out-weekend/">#1</a>, <a title="Scrapbook Peek #2" href="http://sweetaspi.co.uk/scrapbook-peek-2/">#2</a>,<a title="Life Lately" href="http://sweetaspi.co.uk/life-lately/">#3</a>, <a title="Scrapbook Peek #4" href="http://sweetaspi.co.uk/scrapbook-peek-4/" target="_blank">#4</a>, <a title="DIY: Sewn Map Art" href="http://sweetaspi.co.uk/diy-sewn-map-art/" target="_blank">#4.5</a>}</em>
+<em>{Scrapbook peeks are little glimpses of the scrapbook I’ve been putting together of a road trip in the US from last summer. Here are my previous peeks: <a title="A Chilled Out Weekend" href="https://yayfryday.com/post/a-chilled-out-weekend/">#1</a>, <a title="Scrapbook Peek #2" href="https://yayfryday.com/post/scrapbook-peek-2/">#2</a>,<a title="Life Lately" href="https://yayfryday.com/post/life-lately/">#3</a>, <a title="Scrapbook Peek #4" href="https://yayfryday.com/post/scrapbook-peek-4/" target="_blank">#4</a>, <a title="DIY: Sewn Map Art" href="https://yayfryday.com/post/diy-sewn-map-art/" target="_blank">#4.5</a>}</em>
 

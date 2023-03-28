@@ -15,7 +15,7 @@ It’s Easter tomorrow, woo! So today I’ve been busy making cupcakes with my f
 
 <a href="https://yayfryday.com/images/2012/04/IMGP2724-2.jpg"><img class="aligncenter size-full wp-image-528" title="IMGP2724 (2)" src="https://yayfryday.com/images/2012/04/IMGP2724-2.jpg" alt="" width="490" height="346" /></a>
 
-I used my <a title="New Icing Bag Set" href="http://sweetaspi.co.uk/tala-icing-bag-set/" target="_blank">Tala icing bag</a>, and tried out a different nozzle on the one cupcake – can you spot it? :p
+I used my <a title="New Icing Bag Set" href="https://yayfryday.com/post/tala-icing-bag-set/" target="_blank">Tala icing bag</a>, and tried out a different nozzle on the one cupcake – can you spot it? :p
 
 <a href="https://yayfryday.com/images/2012/04/IMGP2726-2.jpg"><img class="aligncenter size-full wp-image-529" title="IMGP2726 (2)" src="https://yayfryday.com/images/2012/04/IMGP2726-2.jpg" alt="" width="490" height="807" /></a>
 

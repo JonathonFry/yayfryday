@@ -23,7 +23,7 @@ We went for a walk in the Pentlands with some friends when the sun came out. It 
 
 <a href="https://yayfryday.com/images/2012/11/rolocookies.jpg"><img class="aligncenter size-full wp-image-1352" title="rolocookies" src="https://yayfryday.com/images/2012/11/rolocookies.jpg" alt="" width="490" height="367" /></a>
 
-I baked <a title="Chewy ‘Millie’s Cookie Style’ Cookies" href="http://sweetaspi.co.uk/chewy-millies-cookie-style-cookies/" target="_blank">cookies</a>, rolo ones, that lasted 2 days at most.
+I baked <a title="Chewy ‘Millie’s Cookie Style’ Cookies" href="https://yayfryday.com/post/chewy-millies-cookie-style-cookies/" target="_blank">cookies</a>, rolo ones, that lasted 2 days at most.
 
 <a href="https://yayfryday.com/images/2012/11/halloween.jpg"><img class="aligncenter size-full wp-image-1353" title="halloween" src="https://yayfryday.com/images/2012/11/halloween.jpg" alt="" width="490" height="326" /></a>
 

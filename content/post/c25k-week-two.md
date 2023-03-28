@@ -37,5 +37,5 @@ It's week two and still enjoying it!
 
 S. xo
 
-<em>//I am following the <a href="http://www.nhs.uk/LiveWell/c25k/Pages/couch-to-5k.aspx" target="_blank">Couch to 5k plan</a> from the NHS, listening <em>to the free <a href="http://www.nhs.uk/Tools/Pages/couch-5K-running-plan.aspx" target="_blank">C25K podcasts</a>, and </em>using the <a href="http://nikeplus.nike.com/plus/products/gps_app/" target="_blank">nike+ app</a> to track each run. You can see all the C25K posts <a href="http://sweetaspi.co.uk/tag/C25K/" target="_blank">here</a>//</em>
+<em>//I am following the <a href="http://www.nhs.uk/LiveWell/c25k/Pages/couch-to-5k.aspx" target="_blank">Couch to 5k plan</a> from the NHS, listening <em>to the free <a href="http://www.nhs.uk/Tools/Pages/couch-5K-running-plan.aspx" target="_blank">C25K podcasts</a>, and </em>using the <a href="http://nikeplus.nike.com/plus/products/gps_app/" target="_blank">nike+ app</a> to track each run. You can see all the C25K posts <a href="https://yayfryday.com/post/tag/C25K/" target="_blank">here</a>//</em>
 

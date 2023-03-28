@@ -36,7 +36,7 @@ Virgin Media are offering their customers free tickets to see <a href="http://ww
 
 &nbsp;
 
-Also the tickets for We Bought A Zoo are now live too - see <a title="Free Cinema Heads-Up: We Bought A Zoo" href="http://sweetaspi.co.uk/free-cinema-heads-up-we-bought-a-zoo/" target="_blank">here</a>.
+Also the tickets for We Bought A Zoo are now live too - see <a title="Free Cinema Heads-Up: We Bought A Zoo" href="https://yayfryday.com/post/free-cinema-heads-up-we-bought-a-zoo/" target="_blank">here</a>.
 
 S.
 

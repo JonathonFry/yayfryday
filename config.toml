@@ -1,4 +1,4 @@
-baseURL = "http://yayfryday.com/"
+baseURL = "https://yayfryday.com/"
 disablePathToLower = true
 languageCode = "en-gb"
 title = "YayFryDay"

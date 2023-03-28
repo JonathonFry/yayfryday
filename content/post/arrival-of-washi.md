@@ -11,7 +11,7 @@ title = "Arrival of Washi"
 +++
 
 
-The <a title="I Heart: Washi Tape" href="http://sweetaspi.co.uk/i-heart-washi-tape/">delivery I've been waiting for</a> has arrived!
+The <a title="I Heart: Washi Tape" href="https://yayfryday.com/post/i-heart-washi-tape/">delivery I've been waiting for</a> has arrived!
 
 <a href="https://yayfryday.com/images/2012/07/washis1.jpg"><img class="aligncenter size-full wp-image-1003" title="washis" src="https://yayfryday.com/images/2012/07/washis1.jpg" alt="" width="490" height="605" /></a>
 

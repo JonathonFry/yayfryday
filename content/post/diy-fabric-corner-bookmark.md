@@ -11,7 +11,7 @@ title = "DIY: Fabric Corner Bookmark"
 +++
 
 
-So I've still got lots of <a title="Free Fabric Samples" href="http://sweetaspi.co.uk/free-fabric-samples/">free fabric samples</a> to use and so I decided to make a little corner bookmark out of a piece of leather and soft wool. The edges of the samples are already cut in a zigzag so I thought I'd keep it that way.
+So I've still got lots of <a title="Free Fabric Samples" href="https://yayfryday.com/post/free-fabric-samples/">free fabric samples</a> to use and so I decided to make a little corner bookmark out of a piece of leather and soft wool. The edges of the samples are already cut in a zigzag so I thought I'd keep it that way.
 
 <a href="https://yayfryday.com/images/2012/06/bookmark.jpg"><img class="aligncenter size-full wp-image-856" title="bookmark" src="https://yayfryday.com/images/2012/06/bookmark.jpg" alt="" width="490" height="548" /></a>
 

@@ -25,5 +25,5 @@ So what things do you like to do on a rainy day?
 
 S. xo
 
-<em>{Scrapbook peeks are little glimpses of the scrapbook I've been putting together of a <a href="http://sweetaspi.co.uk/category/usa-road-trip" target="_blank">road trip in the US </a>from last summer. Here are my previous peeks: <a title="A Chilled Out Weekend" href="http://sweetaspi.co.uk/a-chilled-out-weekend/">#1</a>, <a title="Scrapbook Peek #2" href="http://sweetaspi.co.uk/scrapbook-peek-2/">#2</a>, <a title="Life Lately" href="http://sweetaspi.co.uk/life-lately/">#3</a>}</em>
+<em>{Scrapbook peeks are little glimpses of the scrapbook I've been putting together of a <a href="https://yayfryday.com/post/category/usa-road-trip" target="_blank">road trip in the US </a>from last summer. Here are my previous peeks: <a title="A Chilled Out Weekend" href="https://yayfryday.com/post/a-chilled-out-weekend/">#1</a>, <a title="Scrapbook Peek #2" href="https://yayfryday.com/post/scrapbook-peek-2/">#2</a>, <a title="Life Lately" href="https://yayfryday.com/post/life-lately/">#3</a>}</em>
 

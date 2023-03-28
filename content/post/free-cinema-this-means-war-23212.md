@@ -25,7 +25,7 @@ MetroCentre, Odeon
 Taunton, Odeon
 Wimbledon, Odeon[/toggle]
 
-Tickets have been released for a free screening of <a href="http://www.imdb.com/title/tt1596350/">This Means War</a> for showings on the 23/2/12 at 18.30. For more screenings to This Means War see <a title="Free Cinema – This Means War (Multiple Dates)" href="http://sweetaspi.co.uk/free-cinema-this-means-war-multiple-dates/">here</a>. First come first served so be quick. Just click the following link and choose your cinema (see above for locations):
+Tickets have been released for a free screening of <a href="http://www.imdb.com/title/tt1596350/">This Means War</a> for showings on the 23/2/12 at 18.30. For more screenings to This Means War see <a title="Free Cinema – This Means War (Multiple Dates)" href="https://yayfryday.com/post/free-cinema-this-means-war-multiple-dates/">here</a>. First come first served so be quick. Just click the following link and choose your cinema (see above for locations):
 
 [highlight]<a href="http://www.showfilmfirst.com/pin/527718">Free Tickets Here</a>![/highlight]
 

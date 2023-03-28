@@ -21,7 +21,7 @@ I've also been busy with my scrapbook and managed to complete 3 pages yesterday.
 
 <a href="https://yayfryday.com/images/2012/05/scrapbook-3.jpg"><img class="aligncenter size-full wp-image-673" title="scrapbook 3" src="https://yayfryday.com/images/2012/05/scrapbook-3.jpg" alt="" width="490" height="1019" /></a>
 
-And finally I've put film in my <a title="My New Diana F+ Camera" href="http://sweetaspi.co.uk/my-new-diana-f-camera/">new camera</a> and have started snapping away. Can't wait to get it developed even if they do turn out bad..
+And finally I've put film in my <a title="My New Diana F+ Camera" href="https://yayfryday.com/post/my-new-diana-f-camera/">new camera</a> and have started snapping away. Can't wait to get it developed even if they do turn out bad..
 
 <a href="https://yayfryday.com/images/2012/05/diana-viewfinder.jpg"><img class="aligncenter size-full wp-image-674" title="diana viewfinder" src="https://yayfryday.com/images/2012/05/diana-viewfinder.jpg" alt="" width="490" height="431" /></a>
 

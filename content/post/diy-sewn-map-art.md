@@ -23,7 +23,7 @@ I've recently been looking up ways to display maps as artwork , and I found <a h
 
 I'm thinking I'll do a large map of the West of the US and sew on our road trip and frame it like above :)
 
-So yesterday I had a little play with a free map I picked up in San Francisco. I hand sewn on the route that we took of a day we spent sightseeing (<a href="http://sweetaspi.co.uk/day-17-san-fran-sights/" target="_blank">this one</a>) and put an X where we began and ended - the San Remo Hotel.
+So yesterday I had a little play with a free map I picked up in San Francisco. I hand sewn on the route that we took of a day we spent sightseeing (<a href="https://yayfryday.com/post/day-17-san-fran-sights/" target="_blank">this one</a>) and put an X where we began and ended - the San Remo Hotel.
 
 <a href="https://yayfryday.com/images/2012/06/sewn-map.jpg"><img class="aligncenter size-full wp-image-846" title="sewn map" alt="" src="https://yayfryday.com/images/2012/06/sewn-map.jpg" width="490" height="551" /></a>
 

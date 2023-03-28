@@ -19,7 +19,7 @@ It's been over a year since Jon and I <a href="https://yayfryday.com/post/road-t
 <p style="text-align: center;"><em>Click on the image above and it'll become somewhat clearer </em></p>
 I'll post my thoughts on this project soon, as well as supplies used, so look out for that within the next day or two.
 
-For some close-ups/details you can see all of <a href="http://sweetaspi.co.uk/tag/scrapbook/" target="_blank">my scrapbook posts here</a>.
+For some close-ups/details you can see all of <a href="https://yayfryday.com/post/tag/scrapbook/" target="_blank">my scrapbook posts here</a>.
 
 S. xo
 

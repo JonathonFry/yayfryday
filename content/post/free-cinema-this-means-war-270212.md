@@ -24,7 +24,7 @@ Showcase Liverpool
 Showcase Manchester
 Apollo Piccadilly Circus[/toggle]
 
-More free cinema tickets have been released for <a href="http://www.imdb.com/title/tt1596350/" target="_blank">This Means War</a> for screenings on the 27th Feb at 6.30/7 pm. For more screenings to This Means War see <a title="Free Cinema – This Means War (Multiple Dates)" href="http://sweetaspi.co.uk/free-cinema-this-means-war-multiple-dates/">here</a>. I previously posted another link which can be found <a title="Free Cinema – This Means War (23/2/12)" href="http://sweetaspi.co.uk/free-cinema-this-means-war-23212/" target="_blank">here</a> for screenings on the 23rd Feb. Hope you manage to get some, looks like a good movie! See above for locations.
+More free cinema tickets have been released for <a href="http://www.imdb.com/title/tt1596350/" target="_blank">This Means War</a> for screenings on the 27th Feb at 6.30/7 pm. For more screenings to This Means War see <a title="Free Cinema – This Means War (Multiple Dates)" href="https://yayfryday.com/post/free-cinema-this-means-war-multiple-dates/">here</a>. I previously posted another link which can be found <a title="Free Cinema – This Means War (23/2/12)" href="https://yayfryday.com/post/free-cinema-this-means-war-23212/" target="_blank">here</a> for screenings on the 23rd Feb. Hope you manage to get some, looks like a good movie! See above for locations.
 
 [highlight]<a href="http://www.showfilmfirst.com/pin/266371" target="_blank">Free Tickets Here!</a>[/highlight]
 
