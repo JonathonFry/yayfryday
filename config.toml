@@ -1,7 +1,7 @@
 baseURL = "https://yayfryday.com/"
 disablePathToLower = true
 languageCode = "en-gb"
-title = "YayFryDay"
+title = "yayfryday"
 theme = "stack"
 canonifyURLs = true
 
@@ -12,3 +12,44 @@ canonifyURLs = true
   [markup.goldmark]
     [markup.goldmark.renderer]
       unsafe = true
+
+[params]
+
+  [params.footer]
+  since = 2_011
+
+    [params.sidebar.avatar]
+    enabled = false
+    local = true
+    src = "images/avatar.png"
+
+  [params.article]
+  math = false
+  toc = true
+  readingTime = true
+
+[[params.widgets.homepage]]
+type = "search"
+
+#[[params.widgets.homepage]]
+#type = "archives"
+
+  [params.widgets.homepage.params]
+  limit = 5
+
+[[params.widgets.homepage]]
+type = "categories"
+
+  [params.widgets.homepage.params]
+  limit = 10
+
+#[[params.widgets.homepage]]
+#type = "tag-cloud"
+#
+#  [params.widgets.homepage.params]
+#  limit = 10
+
+
+[params.colorScheme]
+toggle = false
+default = "light"
